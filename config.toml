@@ -7,7 +7,10 @@ paginate = "10"
 [Author]
   name = "Chantal en Roger"
   #bio = "John Doe's true identity is unknown. Maybe he is a successful blogger or writer. Nobody knows it."
-  avatar = "img/avatar.jpg"
+  avatar = "images/avatar.jpg"
+
+[Permalinks]
+  posts = "/:year/:month/:day/:filename"
 
 [Params]
   subtitle = "" # Deprecated in favor of .Site.Params.logo.subtitle
@@ -21,7 +24,8 @@ paginate = "10"
   toc = true # Enable Table of Contents
   pager = true # Show pager navigation (prev/next links) at the bottom of pages if true
   post_meta = ["date", "author", "categories", "translations"] # Order of post meta information
-  mainSections = ["post", "blog", "news"] # Specify section pages to show on home page and the "Recent articles" widget
+  #mainSections = ["post", "blog", "news"] # Specify section pages to show on home page and the "Recent articles" widget
+  mainSections = ["blog"] # Specify section pages to show on home page and the "Recent articles" widget
   dateformat = "2006-01-02" # Change the format of dates
   mathjax = true # Enable MathJax
   mathjaxPath = "https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.6/MathJax.js" # Specify MathJax path
@@ -40,7 +44,7 @@ paginate = "10"
   fontFamilySecondary = "SFMono-Regular, Menlo, Monaco, Consolas, 'Liberation Mono', 'Courier New', monospace"
 
 [Params.logo]
-  image = "img/avatar.jpg" # Logo image. Path relative to "static"
+  image = "images/avatar.jpg" # Logo image. Path relative to "static"
   title = "Chantal en Roger" # Logo title, otherwise will use site title
   subtitle = "Reisverslagen van Chantal en Roger" # Logo subtitle
 
