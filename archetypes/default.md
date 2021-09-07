@@ -1,6 +1,8 @@
 ---
 title: "{{ replace .Name "-" " " | title }}"
 date: {{ .Date }}
-draft: true
+author: Chantal en Roger
+categories:
+- Schluchsee 2021
 ---
 
