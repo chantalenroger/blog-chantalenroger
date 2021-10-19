@@ -14,7 +14,7 @@ Van de 27 glijbanen, is een behoorlijk aantal geschikt voor Sofie. Af en toe moe
 
 ... maar zeker ook het gebeuren buiten spreekt tot de verbeelding.
 
-{{< figure src="/images/IMG_9794.jpg" >}}
+{{< figure src="/images/2021/schluchsee/IMG_9794.jpg" >}}
 
 {{< youtube FukLRdHSgV8 >}}
 

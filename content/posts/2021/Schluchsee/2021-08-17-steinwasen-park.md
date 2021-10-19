@@ -10,12 +10,12 @@ Chantal moet vandaag nog werken, dus zijn Sofie en ik na het ontbijt vertrokken 
 
 Vorig jaar waren we al in dit park geweest, en het ondanks de beperkte omvang, is het toch best een leuke bestemming. Beetje diertjes kijken, beetje rodelen, beetje met een kabelbaan de berg op. Het is prachtig weer, niet al te warm, maar wel lekker zonnig.
 
-{{< figure src="/images/20210817_132014778_iOS.jpg" >}}
+{{< figure src="/images/2021/schluchsee/20210817_132014778_iOS.jpg" >}}
 
-{{< figure src="/images/20210817_114035466_iOS.jpg" >}}
+{{< figure src="/images/2021/schluchsee/20210817_114035466_iOS.jpg" >}}
 
-{{< figure src="/images/20210817_112327656_iOS.jpg" >}}
+{{< figure src="/images/2021/schluchsee/20210817_112327656_iOS.jpg" >}}
 
-{{< figure src="/images/20210817_100933088_iOS.jpg" >}}
+{{< figure src="/images/2021/schluchsee/20210817_100933088_iOS.jpg" >}}
 
 Een ander ding wat ons hier opvalt, is dat werkelijk niemand rekening meer houdt met de anderhalve meter afstand.
