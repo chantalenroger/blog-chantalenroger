@@ -12,14 +12,14 @@ Direct na de ingang zijn we als eerste in Voletarium geweest. Je zit in een soor
 
 We zijn nog in de Alpenexpress (achtbaan), botsauto's, 3 keer in Arthur (fantastische achtbaan waar je onder de rails hangt), Fjord Rafting (met een vlot over een wilde rivier, Sofie was kletsnat), draaiende koffie kopjes, Pirates of Batavia (erg mooi ondergrondse boottocht met erg lekker naast de uitgang).
 
-{{< figure src="/images/Arthur.jpg" >}}
+{{< figure src="/images/2021/schluchsee/Arthur.jpg" >}}
 
-{{< figure src="/images/Batavia.jpg" >}}
+{{< figure src="/images/2021/schluchsee/Batavia.jpg" >}}
 
-{{< figure src="/images/IMG_0973.JPG" >}}
+{{< figure src="/images/2021/schluchsee/IMG_0973.JPG" >}}
 
 Het park is enorm groot, en heeft ongelooflijk veel attracties. Dit heeft als voordeel dat de wachttijden bij meeste attracties niet super lang zijn. 
 
 De zweefmolen was een van Sofie's favorieten, ze wilde (na het ritje samen met mij) er per se alleen er in.
 
-{{< figure src="/images/IMG_9518.jpg" >}}
+{{< figure src="/images/2021/schluchsee/IMG_9518.jpg" >}}
