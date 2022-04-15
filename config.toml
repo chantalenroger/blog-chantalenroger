@@ -1,5 +1,5 @@
 baseURL = "/"
-languageCode = "nl-nl"
+languageCode = "nl"
 title = "Chantal en Roger"
 theme = "mainroad"
 paginate = "10"
@@ -14,7 +14,7 @@ paginate = "10"
 
 [Params]
   subtitle = "" # Deprecated in favor of .Site.Params.logo.subtitle
-  description = "Reisverslagen van Chantal en Roger" # Site description. Used in meta description
+  description = "Reisverslagen van Chantal, Roger en Sofie" # Site description. Used in meta description
   copyright = "Chantal en Roger" # Footer copyright holder, otherwise will use site title
   opengraph = true # Enable OpenGraph if true
   schema = true # Enable Schema
@@ -45,7 +45,7 @@ paginate = "10"
 [Params.logo]
   image = "images/avatar.jpg" # Logo image. Path relative to "static"
   title = "Chantal en Roger" # Logo title, otherwise will use site title
-  subtitle = "Reisverslagen van Chantal en Roger" # Logo subtitle
+  subtitle = "Reisverslagen van Chantal, Roger en Sofie" # Logo subtitle
 
 [Params.sidebar]
   home = "right" # Configure layout for home page
@@ -59,7 +59,7 @@ paginate = "10"
 [Params.widgets]
   recent_num = 5 # Set the number of articles in the "Recent articles" widget
   categories_counter = false # Enable counter for each category in "Categories" widget
-  tags_counter = false # Enable counter for each tag in "Tags" widget
+  tags_counter = true # Enable counter for each tag in "Tags" widget
 
 #[Params.widgets.social]
 #  # Enable parts of social widget
