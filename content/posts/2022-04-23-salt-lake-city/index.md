@@ -12,6 +12,4 @@ Daar zijn we dan, na bijna drie jaar, weer terug in Salt Lake City. Daar waar in
 
 {{< imgproc "images/IMG_6559.jpg" Resize "1000x" >}}
 
-De vlucht ging voorspoedig
-
-Dan weer braaf naar de ihop omdat je daar zo lekker kunt eten.
+iHop iHop iHop
