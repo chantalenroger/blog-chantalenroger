@@ -48,6 +48,10 @@ Toen de zon echt onder was, werd het tijd om de wandeling naar beneden te aanvaa
 
 {{< imgproc "images/IMG_2374.jpg" Resize "1000x" >}}
 
-Tijdens de laatste kilometer was het echt donker, en moesten de rode hoofdlampen aan. Rood, want dan kun je goed voor je kijken, maar ook naar de sterren. En die sterrenhemel hier is werkelijk fantastisch! Zelfs met een "gewone" iPhone kun je 'm prachtig vastleggen!
+Tijdens de laatste kilometer was het echt donker, en moesten de rode hoofdlampen aan. Rood, want dan kun je goed voor je kijken, maar ook naar de sterren.
+
+{{< imgproc "images/IMG_0666.jpg" Resize "1000x" >}}
+
+En die sterrenhemel hier is werkelijk fantastisch! Zelfs met een "gewone" iPhone kun je 'm prachtig vastleggen!
 
 {{< imgproc "images/IMG_2386.JPG" Resize "1000x" >}}
