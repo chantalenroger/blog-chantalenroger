@@ -20,11 +20,11 @@ Met uitzicht op de boog hebben we geluncht.
 
 {{< imgproc "images/IMG_0697.jpg" Resize "1000x" >}}
 
-Vanaf dit punt wordt de wandeling even wat uitdagend, nu we een stijle rotswand moeten trotseren. 
+Vanaf dit punt wordt de wandeling even wat uitdagend, nu we een stijle rotswand moeten trotseren.
 
 ![Klimgeit](images/IMG_2413.jpg)
 
-Gelukkig komt iedereen heelhuids boven. Vvanaf daar heb je een fantastisch mooi uitzicht. Op de bergen aan de horizon ligt nog sneeuw.
+Gelukkig komt iedereen heelhuids boven. Vanaf daar heb je namelijk een fantastisch mooi uitzicht. Op de bergen aan de horizon ligt nog sneeuw.
 
 {{< imgproc "images/IMG_0700.jpg" Resize "1000x" >}}
 
