@@ -8,6 +8,30 @@ tags:
 - USA 2022
 ---
 
-Toen we wakker werden, zagen we redelijk tot onze verbazing dat Delta al een mail heeft gestuurd dat onze koffers inmiddels zijn aangekomen in Salt Lake City. Dus ben ik de auto ingesprongen en weer terug gereden naar het vliegveld. Een ritje van zo'n 40 minuten. Op deze vroege zondagochtend was er nog niemand op de weg. Ook in de aankomsthal was het heel erg rustig, zodat ik om 7:20 al weer op weg terug was naar het hotel.
+We hadden een beetje geluk: we konden voor vandaag nog een timed-entry boeken voor 12 uur. Dus hebben Chantal en Sofie in het hotel het Junior Ranger boekje afgemaakt. Net na het middaguur mocht Sofie bij de ranger in het bezoekerscentrum de Badge ophalen. Trots als een pauw heeft ze wat vraagjes beantwoord, inclusief een keurig Amerikaans accent :-)
 
-Nadat we de koffers opnieuw hebben gerangschikt, zijn we op pad gegaan richting Moab. Dat wordt onze standplaats voor de komende drie nachten. Onderweg bij de Walmart in Price hebben we wat proviant ingeslagen voor de lunch en voor ons avontuur van vanavond.
+{{< imgproc "images/IMG_0671.jpg" Resize "1000x" >}}
+
+Na deze formaliteiten zijn we helemaal naar het einde van het park gereden, naar de Devils Garden Trailhead. Na een stukkie lopen komen we aan bij Landscape Arch, met ruim 93 meter de langste natuurlijke boog van Noord Amerika.
+
+{{< imgproc "images/IMG_0690.jpg" Resize "1000x" >}}
+
+Met uitzicht op de boog hebben we geluncht.
+
+{{< imgproc "images/IMG_0697.jpg" Resize "1000x" >}}
+
+Vanaf dit punt wordt de wandeling even wat uitdagend, nu we een stijle rotswand moeten trotseren. 
+
+![Klimgeit](images/IMG_2413.jpg)
+
+Gelukkig komt iedereen heelhuids boven. Vvanaf daar heb je een fantastisch mooi uitzicht. Op de bergen aan de horizon ligt nog sneeuw.
+
+{{< imgproc "images/IMG_0700.jpg" Resize "1000x" >}}
+
+Na een bezoek aan de Partition en Navajo arches, keren we weer terug naar de auto. Het was best warm vandaag, en we hebben flink gewandeld, dus een duik in het (verwarmde) zwembad hebben we verdiend.
+
+{{< imgproc "images/IMG_0711.jpg" Resize "1000x" >}}
+
+Wat we ook verdiend hebben, is een lekkere hamburger in de Moab Brewery. Onder het genot van een goede IPA, krijg ik een beste hamburger voorgeschoteld...
+
+![Eten!](images/IMG_2469.jpg)
