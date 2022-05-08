@@ -48,7 +48,7 @@ Soms moeten we zelfs onder mini-arches door kruipen...
 
 {{< imgproc "images/IMG_2658.JPG" Resize "1000x" >}}
 
-Echt onprettig smal wordt het gelukkig maar heel even, ik moest heel even wat stroef tussen borst en schouders.
+Echt onprettig smal wordt het gelukkig maar heel even, ik moest heel even wat stroef tussen borst en schouders zijwaards voortbewegen.
 
 {{< imgproc "images/IMG_2664.JPG" Resize "1000x" >}}
 
