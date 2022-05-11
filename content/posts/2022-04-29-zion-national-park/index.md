@@ -18,6 +18,10 @@ Met volle buik stappen we in de voiture om via de UT-12 en UT-89 richting Zion t
 
 {{< youtube id="Nqb2OtSyp2s" autoplay="true" title="Belly Of The Dragon, Mount Carmel Junction, Utah">}}
 
+{{< imgproc "images/IMG_2751.JPG" Resize "1000x r270" >}}
+
+{{< imgproc "images/IMG_2748.JPG" Resize "1000x r0" >}}
+
 Na een kwartiertje hebben we het wel gezien, en rijden we via de fantastische UT-9 Zion National Park in. Het is en blijft ons favoriete park. Het is heerlijk weer vandaag, en we slingeren dat het een lieve lust is de vallei in. We zijn hier natuurlijk al redelijk vaak geweest, dus we laten deze keer de grote, bekende wandelingen en bezienswaardigheden voor wat het is. Net na de tunnel bij Zion Scenic Drive Viewpoint 2 parkeren we de auto, en gaan een stukje klauteren over rotsblokken in de Pine Creek.
 
 {{< imgproc "images/IMG_2777.JPG" Resize "1000x r0" >}}
