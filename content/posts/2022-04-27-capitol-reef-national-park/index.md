@@ -8,7 +8,7 @@ tags:
 - USA 2022
 ---
 
-Vanmorgen zijn we vroeg opgestaan, want we hebben een redelijke lange rit af te leggen naar onze volgende overnachting. We verlaten Moab via de UT-191 richting interstate 70. Daar gaan we naar het westen, om iets voorbij Green River de UT-24 te namen. Deze weg is nagenoeg verlaten en rijdt dwars door de woestijn. Het is fantastisch. Alleen al het rijden in Amerika heb ik de afgelopen Corona jaren gemist. Zo uitgestrekt, zo ver je kunt kijken alleen maar rotsen, wat verdwaalde boompjes en planten.
+Vanmorgen zijn we vroeg opgestaan, want we hebben een redelijke lange rit af te leggen naar onze volgende overnachting. We verlaten Moab via de UT-191 richting interstate 70. Daar gaan we naar het westen, om iets voorbij Green River de UT-24 te nemen. Deze weg is nagenoeg verlaten en rijdt dwars door de woestijn. Het is fantastisch. Alleen al het rijden in Amerika heb ik de afgelopen Corona jaren gemist. Zo uitgestrekt, zo ver je kunt kijken alleen maar rotsen, wat verdwaalde boompjes en planten.
 
 Bij Hanksville gaan we UT-24 op die ons via een waanzinnig mooie weg naar Capitol Reef National Park brengt. Onderweg stoppen we nog even bij een parkeerplaats waar Sofie met de voetjes in de Fremont River heeft gespeeld.
 
