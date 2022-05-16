@@ -18,7 +18,7 @@ Vlak voor Barstow trouwens staat dit bord langs de Interstate:
 
 {{< imgproc "images/IMG_3032.JPG" Resize "1000x r0" >}}
 
-Bij eerdere reizen hadden we het al eens zien staan, maar eigenlijk nooit de tijd genomen om op te zoeken wat het eigenlijk is. Volgens wikipedia is een een deels onverharde weg van zo'n 7 kilometer naar een voormalige waterbron met bijbehorende spa. Misschien leuk om een volgende keer eens te gaan kijken.
+Bij eerdere reizen hadden we het al eens zien staan, maar eigenlijk nooit de tijd genomen om op te zoeken wat het eigenlijk is. Volgens wikipedia is het een deels onverharde weg van zo'n 7 kilometer naar een voormalige waterbron met bijbehorende spa. Misschien leuk om een volgende keer eens te gaan kijken.
 
 Rond Los Angeles werd de weg zoals te verwachten weer erg druk. Met behulp van Google Maps komen we toch met minimale vertraging aan bij ons volgende en laatste hotel: Het SunCoast Hotel in Anaheim. Het is onderdeel van de Hilton groep, en dat merk je aan de schone, ruime kamer die van alle gemakken is voorzien.
 
