@@ -14,7 +14,7 @@ De kwaliteit van het ontbijt blijkt een indicatie te zijn van hoe de dag begon. 
 
 Erg jammer, want blijkt wel een heel mooi plekje te zijn.
 
-{{< imgproc "images/IMG_0884.jpg" Resize "1000x r0" >}}
+{{< imgproc "images/IMG_0884.jpg" Resize "1024x r0" >}}
 
 En dus besloten we om de tube maar even in de doos te laten en zijn we naar het nabij gelegen Sand Hollow State Park gereden. Daar volgde de derde teleurstelling van de dag: het was er onwaarschijnlijk druk! We zijn het park niet eens ingereden, en hebben voor de ingang omgedraaid.
 
@@ -22,10 +22,10 @@ Aan de andere kant van de UT-9, iets verder naar het westen, ligt nóg een State
 
 Nadat we ons op de picknick deken in de schaduw van een mooi boompje hadden gesetteld, hebben we een snelle lunch naar binnen gewerkt. Want er moet natuurlijk wel op het meer worden gedobberd op de nieuwe pizza floaty van Sofie!
 
-{{< imgproc "images/IMG_0888.jpg" Resize "1000x r0" >}}
+{{< imgproc "images/IMG_0888.jpg" Resize "1024x r0" >}}
 
 Terwijl de dames in het water aan het ravotten waren, heb ik heerlijk een boek gelezen. De buitentemperatuur was heerlijk, het water daarentegen was erg fris.
 
-{{< imgproc "images/IMG_0893.jpg" Resize "1000x r0" >}}
+{{< imgproc "images/IMG_0893.jpg" Resize "1024x r0" >}}
 
 's Avonds hebben we semi-chique gegeten bij Magleby's in St George. Ze hebben een heerlijke Double IPA en het eten is ook meer dan prima.

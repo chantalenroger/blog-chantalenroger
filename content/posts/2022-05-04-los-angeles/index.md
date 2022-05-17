@@ -12,11 +12,11 @@ Vandaag was uw typische relocatiedag. We laten de drukte van Las Vegas achter on
 
 Zodra je bij Vegas de snelweg weer opdraait, word je weer bewust dat de stad midden in de woestijn ligt. Al snel maken de betonnen kolossen plaats voor zand, rots en een verdwaalde cactus of struik. Onze volgende bestemming is Anaheim, onder de rook van Los Angeles. Om de rit van ruim 400 kilometer te onderbreken, dachten we dat een ongezonde lunch bij de McDonald's in Barstow, California wel een leuk idee zou zijn. Het is een McDonald's restaurant in treinstellen. Het blijkt een wat smoezelig geheel, met meer zwervers dan klanten en toeringcars met volk. We besluiten het bij de McDrive te houden, en schuiven de hamburger in de auto vlug naar binnen.
 
-{{< imgproc "images/barstow-station-mcdonalds_2.jpg" Resize "1000x r0" >}}
+{{< imgproc "images/barstow-station-mcdonalds_2.jpg" Resize "1024x r0" >}}
 
 Vlak voor Barstow trouwens staat dit bord langs de Interstate:
 
-{{< imgproc "images/IMG_3032.JPG" Resize "1000x r0" >}}
+{{< imgproc "images/IMG_3032.JPG" Resize "1024x r0" >}}
 
 Bij eerdere reizen hadden we het al eens zien staan, maar eigenlijk nooit de tijd genomen om op te zoeken wat het eigenlijk is. Volgens wikipedia is het een deels onverharde weg van zo'n 7 kilometer naar een voormalige waterbron met bijbehorende spa. Misschien leuk om een volgende keer eens te gaan kijken.
 
@@ -24,6 +24,6 @@ Rond Los Angeles werd de weg zoals te verwachten weer erg druk. Met behulp van G
 
 Terwijl ik op zoek ga naar een autowasstraat, gaan de dames alvast een duik nemen in het zwembad.
 
-{{< imgproc "images/IMG_0967.jpg" Resize "1000x r0" >}}
+{{< imgproc "images/IMG_0967.jpg" Resize "1024x r0" >}}
 
 's Avonds eten we weer eens bij de Cheesecake Factory (het is er steenkoud binnen!), op loopafstand deze keer :-)
