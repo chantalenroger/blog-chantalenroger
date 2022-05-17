@@ -16,7 +16,7 @@ Als eerste gaan we in de Incredicoaster: een achtbaan geïnspireerd op de superh
 
 {{< imgproc "images/IMG_1035.jpg" Resize "1024x r0" >}}
 
-Na dit spectacel was het tijd voor wat rustigers: via Toy Story Midway Mania (erg leuk!), het reuzenrad (doodsangsten, de karretjes schommelen!), de Silly Symphony Swings (zweefmolen) en de Jumpin' Jellyfish (een of ander op-en-neer-dinges)...
+Na dit spektakel was het tijd voor wat rustigers: via Toy Story Midway Mania (erg leuk!), het reuzenrad (doodsangsten, de karretjes schommelen!), de Silly Symphony Swings (zweefmolen) en de Jumpin' Jellyfish (een of ander op-en-neer-dinges)...
 
 {{< imgproc "images/IMG_3106.JPG" Resize "1024x r0" >}}
 
