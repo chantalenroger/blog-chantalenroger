@@ -6,6 +6,8 @@ author: Chantal en Roger
 tags:
 - Travel
 - USA 2022
+
+comments: true
 ---
 
 Vrijdag ochtend hebben we alle covid-gerelateerde documenten bij de KLM aangeleverd, en na een paar uurtjes kwam het verlossende woord: de documenten zijn akkoord, dus we kunnen op reis! Boarding passen kunnen we niet printen omdat de formulieren aan de balie ook nog moeten worden gecontroleerd.
