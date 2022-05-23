@@ -23,4 +23,3 @@ Na 10 uur landden we in Salt Lake City. We waren de allereerste bij de douane, d
 Nadat we de auto opgehaald hadden bij Alamo zijn richting het eerste hotel gereden. Onderweg hebben we nieuwe wandelschoenen gekocht bij REI (want die zaten in een koffer natuurlijk). Het Hampton Inn & Suites hotel in Orem is keurig, met een binnen zwembad. Ik en Sofie zijn gaan zwemmen terwijl Chantal even in de naastgelegen Walmart duikt voor wat toiletspullen (want die zaten in een koffer natuurlijk). Na het zwemmen hebben we een sim-kaartje geregeld voor mobiele data, hebben we een beer gekocht voor Sofie en hebben we een snelle hap bij de McDonald gedaan. Om 21 uur ging bij ons alledrie het licht uit.
 
 {{< imgproc "images/IMG_2266.JPG" Resize "1024x" >}}
-piep
