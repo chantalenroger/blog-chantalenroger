@@ -3,6 +3,7 @@ languageCode = "nl"
 title = "Chantal en Roger"
 theme = "mainroad"
 paginate = "10"
+disqusShortname = "rogerbaten"
 
 [Author]
   name = "Chantal en Roger"
