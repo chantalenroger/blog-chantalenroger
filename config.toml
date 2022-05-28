@@ -1,4 +1,4 @@
-baseURL = "/"
+baseURL = "https://chantalenroger.github.io/blog-chantalenroger/"
 languageCode = "nl"
 title = "Chantal en Roger"
 theme = "mainroad"
