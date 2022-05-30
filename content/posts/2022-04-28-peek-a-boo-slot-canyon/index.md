@@ -18,7 +18,7 @@ Helemaal aan het einde van de weg is een parkeerplaats en de trailhead voor de w
 
 {{< imgproc "images/IMG_2627.JPG" Resize "1024x" >}}
 
-Maar niet getreurd, volgens de berichten op internet is Peek-A-Boo zowiezo de mooiere van de twee. Dus vol goede moed gaan we op pad. Het begint allemaal eenvoudig. Via een mooi paadje lopen we langs de rand van de afgrond, met prachtige vergezichten.
+Maar niet getreurd, volgens de berichten op internet is Peek-A-Boo sowieso de mooiere van de twee. Dus vol goede moed gaan we op pad. Het begint allemaal eenvoudig. Via een mooi paadje lopen we langs de rand van de afgrond, met prachtige vergezichten.
 
 {{< imgproc "images/IMG_0835.jpg" Resize "1024x" >}}
 
