@@ -10,7 +10,7 @@ tags:
 - 2022
 ---
 
-Vanwege een onverwacht campeer-uitje bij de familie Hannink, waren alle tassen al zo'n beetje ingepakt voor het weekend. Na maandag nog een paar uurtjes gewerkt te hebben, konden we dinsdag om 7 uur vertrekken. Eerste stop: Garmisch-Partenkirchen. De rit ging voorspoedig, zonder enige vertraging zelfs. Ten minste, tot Mannheim. Hier werd het aanmerkelijk drukker, en stonden we een enkele keer in een file. Gelukkig viel de vertraging al met al reuze mee. Om 16 uur kwamen we aan bij ons hotel, Moun10 Urlaubswhohnen. Een nieuw en modern ingericht appartementen complex pal naast het station aan de rand van het centrum. Een paar maanden geleden zijn hier vlakbij twee treinen op elkaar gebotsts waarbij een dode viel. Blijkbaar is het spoor nog niet hersteld, want sindsdien rijden er geen treinen.
+Vanwege een onverwacht campeer-uitje bij de familie Hannink, waren alle tassen al zo'n beetje ingepakt voor het weekend. Na maandag nog een paar uurtjes gewerkt te hebben, konden we dinsdag om 7 uur vertrekken. Eerste stop: Garmisch-Partenkirchen. De rit ging voorspoedig, zonder enige vertraging zelfs. Ten minste, tot Mannheim. Hier werd het aanmerkelijk drukker, en stonden we een enkele keer in een file. Gelukkig viel de vertraging al met al reuze mee. Om 16 uur kwamen we aan bij ons hotel, Moun10 Urlaubswohnen. Een nieuw en modern ingericht appartementen complex pal naast het station aan de rand van het centrum. Een paar maanden geleden zijn hier vlakbij twee treinen op elkaar gebotsts waarbij een dode viel. Blijkbaar is het spoor nog niet hersteld, want sindsdien rijden er geen treinen.
 
 Vanaf ons balkon kijken we uit op het perron, en daarachter op de omliggende bergen.
 
