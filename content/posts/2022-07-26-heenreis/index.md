@@ -14,14 +14,14 @@ Vanwege een onverwacht campeer-uitje bij de familie Hannink, waren alle tassen a
 
 Vanaf ons balkon kijken we uit op het perron, en daarachter op de omliggende bergen.
 
-{{< imgproc "images/IMG_1281.png" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_1281.png" Resize "1024x768" >}}
 
 In het midden van bovenstaande foto is de Zugspitze (niet) te zien. Met 2962 meter is dit de hoogste berg van Duitsland.
 
 Nadat we alle spullen opgeborgen hebben, is het tijd om in het centrum op zoek te gaan naar een restaurant. Uiteindelijk belanden we bij Fisher's Mohrenplatz op het terras. De eerste Schnitzel en Zwiebelrostbraten zijn een feit. De locatie is erg mooi, maar helaas stikt het van de wespen, dus van rustig genieten komt niet veel.
 
-{{< imgproc "images/IMG_1234.png" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_1234.png" Resize "1024x768 r0" >}}
 
 Onderweg terug naar het hotel hebben we nog een ijs gehaald, en toen een beetje op tijd gaan slapen. Het was een drukke en lange dag.
 
-{{< imgproc "images/IMG_1236.png" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_1236.png" Resize "768x1024 r0" >}}
