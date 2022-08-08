@@ -24,7 +24,7 @@ Zeker in de dorpjes die we passeren is het erg druk. We rijden helemaal door tot
 
 {{< youtube id="CkXnUh9At0I" autoplay="true" title="Strada della Forra">}}
 
-Eenmaal boven aangekomen is het tijd voor de lunch. We kiezen voor het terras van Hotel Paradiso. Een aantal restaurants en hotels hebben een zogenaamd griezel (of horror) terras. Het terras steekt dan een aantal meters uit. Het Gardameer ligt dan 300 tot 400 meter recht onder je. Het uitzicht, maar ook het eten, is fantastisch!
+Eenmaal boven aangekomen is het tijd voor de lunch. We kiezen voor het terras van Hotel Paradiso. Een aantal restaurants en hotels hebben een zogenaamd griezel (of horror) terras. Het terras steekt dan een aantal meters uit. Het Gardameer ligt 300 tot 400 meter recht onder je. Het uitzicht, maar ook het eten, is fantastisch!
 
 {{< imgproc "images/IMG_3963.JPG" Fit "1024x768 r0" >}}
 
