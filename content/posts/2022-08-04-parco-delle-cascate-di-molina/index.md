@@ -51,3 +51,6 @@ We sluiten de tour af bij het zwembad waar al een tafel mooi gedekt klaar staat 
 Sofie mag ook een slokje witte wijn proeven, maar of ze het nou zo lekker vindt...
 
 {{< imgproc "images/IMG_4075.JPG" Fit "1024x768 r270" >}}
+
+'s Avonds pakken we alles weer in want het is onze laatste avond hier bij Cobue. Wat een fantastische plek is dit zeg. Gelukkig komen we hier over 12 dagen weer terug wanneer we weer naar huis moeten.
+
