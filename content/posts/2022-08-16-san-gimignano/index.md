@@ -14,7 +14,7 @@ De dag na de enorme storm van gisteren begon goed. Het uitzicht vanuit ons appar
 
 {{< imgproc "images\IMG_1771.jpg" Fit "1024x768 r0" >}}
 
-{{< imgproc "images\IMG_1778.jpg" Fit "1024x768 r0" >}}
+<!-- {{< imgproc "images\IMG_1778.jpg" Fit "1024x768 r0" >}}
 
 Maar goed. We ontbijten in rap tempo, want we willen op tijd vertrekken naar San Gimignano: wellicht het bekendste bergdorp van Toscane. In dit dorp waan je je in de Middeleeuwen. Om half tien parkeren we op de half lege parkeerplaats. Na een paar minuten lopen komen we aan bij de toegangspoort tot het dorp. Het is bekend om het feit dat de skyline nagenoeg niet veranderd is sinds de Middeleeuwen. De veertien middeleeuwse torens hebben het dorp de bijnaam "Manhattan van de Middeleeuwen" gegeven.
 
@@ -42,4 +42,4 @@ Rond 12:30 hebben we het wel gezien allemaal en lopen terug richting de auto. De
 
 De rest van de middag besteden we aan de koffers inpakken (laatste avond :-() en chillen bij het zwembad. We sluiten het bezoek aan Castello di Gabbiano in stijl af bij het restaurant.
 
-{{< imgproc "images\collage.jpg" Fit "1024x768 r0" >}}
+{{< imgproc "images\collage.jpg" Fit "1024x768 r0" >}} -->
