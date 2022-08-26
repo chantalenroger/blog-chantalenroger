@@ -12,7 +12,7 @@ tags:
 
 De dag na de enorme storm van gisteren begon goed. Het uitzicht vanuit ons appartement over de wijngaarden en olijfbomen belooft veel goeds voor vandaag. Ik ben natuurlijk geen kenner, maar ik zie links en rechts toch behoorlijk wat gehavende druiven. Met name veel bladeren van de druivenstruiken zijn beschadigd en dat schijnt niet goed te zijn voor de druiven volgens de dame van het hotel. Ze worden dan teveel bloot gesteld aan direct zonlicht.
 
-{{< imgproc "images\IMG_1771.jpg" Fit "1024x768 r0" >}}
+{{< imgproc "images\IMG_1771.jpg" Resize "1024x768 r0" >}}
 
 <!-- {{< imgproc "images\IMG_1778.jpg" Fit "1024x768 r0" >}}
 
