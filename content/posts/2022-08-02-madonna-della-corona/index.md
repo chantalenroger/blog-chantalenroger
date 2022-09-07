@@ -14,11 +14,11 @@ Het Santuario Madonna della Corona in Spiazzi is het bekendste en meest bezochte
 
 Bijna zwevend tussen hemel en aarde, op een hoogte van 774 meter, ligt deze plek verborgen te midden van de rotsen van de Monte Baldo. Vanaf deze bijzondere locatie heb je een prachtig uitzicht op de vallei waar de Adige doorheen stroomt. Volgens oude geschriften zouden hier rond het jaar duizend al kluizenaars hebben geleefd.
 
-Vanaf de parkeerplaats gaat een pad stijl naar beneden. Na een minuut of 20 zien we het kerkje voor het eerst. De linkerkant van de kerk is volledig in de rotsen ingebouwd. Het is een spectaculair gezicht.
+Vanaf de parkeerplaats gaat een pad steil naar beneden. Na een minuut of 20 zien we het kerkje voor het eerst. De linkerkant van de kerk is volledig in de rotsen ingebouwd. Het is een spectaculair gezicht.
 
 {{< imgproc "images/IMG_1501.png" Fit "1024x768 r0" >}}
 
-Na nog wat geslinger komen we uiteindelijk aan bij de stijle trap die je naar het kerkje brengt.
+Na nog wat geslinger komen we uiteindelijk aan bij de steile trap die je naar het kerkje brengt.
 
 {{< imgproc "images/IMG_1504.png" Fit "1024x768 r0" >}}
 
