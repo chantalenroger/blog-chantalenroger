@@ -24,7 +24,7 @@ Maar niet getreurd, volgens de berichten op internet is Peek-A-Boo sowieso de mo
 
 Het is vandaag warm, maar er staat gelukkig wel een verkoelend briesje. Sofie was een beetje in de mopperstand: "Normale papa's en mama's nemen hun kind mee naar een zwembad, en niet naar de woestijn om te wandelen". Misschien heeft ze wel een beetje gelijk :-)
 
-Al vlug moeten we zeer stijl naar beneden om richting de ingang van de slot canyon te gaan.
+Al vlug moeten we zeer steil naar beneden om richting de ingang van de slot canyon te gaan.
 
 {{< imgproc "images/IMG_2635.JPG" Resize "1024x" >}}
 
