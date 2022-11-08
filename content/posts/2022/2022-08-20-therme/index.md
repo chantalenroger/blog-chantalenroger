@@ -19,3 +19,5 @@ We vallen vandaag wel met de neus in de boter: in het buitenbad (met bar!) organ
 {{< youtube id="maRWmaQCYdo" autoplay="true" title="Dirndlflug Erding" >}}
 
 Uiteindelijk weten we het te rekken tot 9 uur in de avond. Sofie vindt het helemaal niet leuk dat we terug gaan naar het hotel. Zij vindt dit veruit de leukste dag van de hele vakantie. Papa en mama zijn iets gematigder enthousiast :-) Hoewel het in met name het golfslagbad wel erg druk is, valt het in de overige baden best wel mee eigenlijk. De meeste gasten gaan van die idioot stijle glijbanen af, dus daar hadden wij niet veel last van.
+
+En zo zijn we aangekomen bij de allerlaatste avond van deze vakantie. Morgen gaan we weer naar huis!
