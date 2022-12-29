@@ -38,6 +38,8 @@ Onderweg stoppen we nog even bij Mirador del Balcón. Het uitzichtpunt, hangend 
 
 {{< imgproc "images/IMG_2018.jpg" Fit "1024x768 r0" >}}
 
+{{< imgproc "images/IMG_4927.JPG" Fit "1024x768 r0" >}}
+
 Via nog meer haarspeldbochten en enorme hoogteverschillen komen we uiteindelijk aan bij ons huis: [Villa Tauro Beach & Golf](https://www.villataurobeach.nl/). Een hele mond vol, maar het is dan ook wel erg mooi. Verwarmd zwembad, mooi terras, twee grote slaapkamers, twee badkamers, mooie keuken. We voelen ons meteen thuis. Natuurlijk moet direct bij aankomst het zwembad worden uitgeprobeerd. Terwijl Sofie en ik een duik nemen, gaat Chantal op zoek naar een supermarkt om wat eten te regelen voor vanavond. Het wordt BBQ, en het smaakt prima, zo op het terras. 's Avonds gaan we allemaal op tijd naar bed, want het was een erg lange dag.
 
 
