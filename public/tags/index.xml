@@ -1,0 +1,92 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom">
+  <channel>
+    <title>Tags on Chantal en Roger</title>
+    <link>/tags/</link>
+    <description>Recent content in Tags on Chantal en Roger</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>nl</language>
+    <lastBuildDate>Thu, 27 Oct 2022 16:14:25 +0200</lastBuildDate><atom:link href="/tags/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>2022</title>
+      <link>/tags/2022/</link>
+      <pubDate>Thu, 27 Oct 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/2022/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Gran Canaria</title>
+      <link>/tags/gran-canaria/</link>
+      <pubDate>Thu, 27 Oct 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/gran-canaria/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Herfstvakantie 2022</title>
+      <link>/tags/herfstvakantie-2022/</link>
+      <pubDate>Thu, 27 Oct 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/herfstvakantie-2022/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Travel</title>
+      <link>/tags/travel/</link>
+      <pubDate>Thu, 27 Oct 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/travel/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Italië</title>
+      <link>/tags/itali%C3%AB/</link>
+      <pubDate>Sat, 20 Aug 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/itali%C3%AB/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Zomervakantie 2022</title>
+      <link>/tags/zomervakantie-2022/</link>
+      <pubDate>Sat, 20 Aug 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/zomervakantie-2022/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Duitsland</title>
+      <link>/tags/duitsland/</link>
+      <pubDate>Sat, 30 Jul 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/duitsland/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>USA 2022</title>
+      <link>/tags/usa-2022/</link>
+      <pubDate>Sat, 07 May 2022 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/usa-2022/</guid>
+      <description></description>
+    </item>
+    
+    <item>
+      <title>Schluchsee 2021</title>
+      <link>/tags/schluchsee-2021/</link>
+      <pubDate>Wed, 01 Sep 2021 16:14:25 +0200</pubDate>
+      
+      <guid>/tags/schluchsee-2021/</guid>
+      <description></description>
+    </item>
+    
+  </channel>
+</rss>

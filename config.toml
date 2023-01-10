@@ -4,7 +4,7 @@ title = "Chantal en Roger"
 theme = "mainroad"
 paginate = "10"
 disqusShortname = "rogerbaten"
-publishdir = "docs"
+publishdir = "public"
 
 [Author]
   name = "Chantal en Roger"
