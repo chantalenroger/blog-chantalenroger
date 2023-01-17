@@ -12,7 +12,7 @@ Eindelijk was het zover, de dag waarnaar Sofie zo enorm uitkeek. Vandaag staat e
 
 Van de 27 glijbanen, is een behoorlijk aantal geschikt voor Sofie. Af en toe moet ze zich over haar angst heenzetten, maar dan is het ook genieten (en gillen!) geblazen. De wildwaterbaan blijft favoriet...
 
-{{< youtube id="8oMbIc25Zh8" autoplay="true" title="Rulantica wildwaterbaan">}}
+<!-- {{< youtube id="8oMbIc25Zh8" autoplay="true" title="Rulantica wildwaterbaan">}} -->
 
 ... maar zeker ook het gebeuren buiten spreekt tot de verbeelding.
 
