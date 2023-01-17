@@ -5,6 +5,7 @@ theme = "mainroad"
 paginate = "10"
 disqusShortname = "rogerbaten"
 publishdir = "public"
+timeout = "120"
 
 [Author]
   name = "Chantal en Roger"
