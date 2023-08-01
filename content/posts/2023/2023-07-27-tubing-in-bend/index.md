@@ -35,4 +35,3 @@ Sofie vindt het in eerste instantie een beetje eng, vooral omdat ze te korte arm
 Na de stroomversnelling wordt de rivier weer rustig, en kunnen we genieten van alle joekels van huizen van de rijkere Bend-inwoners. Na ongeveer drie kwartier dobberern mogen we weer aan wal en worden we met een bus terug gebracht naar de park-and-float.
 
 We gaan wat shoppen in het Old Mill district en eten op het terras aan de oever van de rivier bij Pastini. Daarna rijden we weer terug naar LaPine State Park. Gelukkig staan we nu op een andere loop dan gisteren, en hebben we weer een mooi plekje.
-
