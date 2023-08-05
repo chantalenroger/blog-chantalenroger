@@ -16,7 +16,7 @@ Via de fantastische CA-89 rijden we richting Lassen Volcanic National Park. Onde
 
 {{< imgproc "images/IMG_7068.JPG" Resize "1024x r270" >}}
 
-Deze waterval is best mooi, maar niet spectaculair. Dat is de Middle wel, zo vanaf grote hoogte. 
+Deze waterval is best mooi, maar niet spectaculair. Dat is de Middle wel, zo vanaf grote hoogte.
 
 {{< imgproc "images/IMG_7073.JPG" Resize "1024x r270" >}}
 
