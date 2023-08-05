@@ -22,7 +22,7 @@ Iets verderop komen we bij Lake Helen, en Sofie besluit de voetjes even af te ko
 
 Hier ligt nog behoorlijk veel sneeuw in de berm (we zijn op 2500 meter hoogte), en Sofie neemt het dappere besluit om gezeten op een plastic zak naar beneden te glijden. Halverwege de afdaling van een meter of 10 bedenkt ze dat glijden met slippers aan niet heel slim is. En dus komt ze verkleumd van de kou redelijk hard in aanraking met de grond. Maar niks aan de hand, geen schrammetje te zien :-)
 
-Eigenlijk willen we de Bumpass Hell trail wandelen, maar die is helaas nog gesloten vanwege sneeuw. Jammer maar helaas. En dus rijden we maar door en bekijken de geothermische objecten bij Sulphur Works. Het is maar kleinschalig, zeker als je het vergelijkt met bijvoorbeeld Yellowstone, maar het is wel een leuke korte stop.
+Eigenlijk willen we de Bumpass Hell trail wandelen, maar die is helaas nog gesloten vanwege sneeuw. Jammer maar helaas. En dus rijden we maar door en bekijken de geothermale objecten bij Sulphur Works. Het is maar kleinschalig, zeker als je het vergelijkt met bijvoorbeeld Yellowstone, maar het is wel een leuke korte stop.
 
 {{< imgproc "images/IMG_7170.JPG" Resize "1024x r0" >}}
 
