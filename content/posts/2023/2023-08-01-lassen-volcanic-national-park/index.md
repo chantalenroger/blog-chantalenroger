@@ -32,6 +32,6 @@ De laatste stop in het park voor vandaag is het visitor center, helemaal aan de 
 
 {{< imgproc "images/IMG_7176.JPG" Resize "1024x r0" >}}
 
-Na het ophalen van de batch rijden we weer terug naar de noordkant van het park, waar we vervolgens koers zetten naar Redding. Hier hebben we twee nachten voor de boeg op camping Boulder Creek RV Resort. We gaan zwemmen in het heerlijk warme zwembad, en 's avonds gaan we eten bij Pete's Restaurant and Brewhouse.
+Na het ophalen van de badge rijden we weer terug naar de noordkant van het park, waar we vervolgens koers zetten naar Redding. Hier hebben we twee nachten voor de boeg op camping Boulder Creek RV Resort. We gaan zwemmen in het heerlijk warme zwembad, en 's avonds gaan we eten bij Pete's Restaurant and Brewhouse.
 
 {{< imgproc "images/IMG_3516.JPG" Resize "1024x r0" >}}
