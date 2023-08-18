@@ -16,6 +16,6 @@ Een rustige dag staat op het programma vandaag. We vertrekken laat van de campin
 
 De lunch bestaat uit heerlijke Mexicaanse snacks.
 
-{{< imgproc "images/IMG_7278.JPG" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_7278.JPG" Resize "1024x r270" >}}
 
 We komen aan het einde van de middag aan bij Jackson Rancheria RV park en duiken direct in het heerlijke zwembad. 's Avonds nemen we de gratis shuttlebus die ons naar het nabij gelegen casino brengt. Daar eten we wat en gaan dan weer terug naar de camper.

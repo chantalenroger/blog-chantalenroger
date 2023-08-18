@@ -28,7 +28,11 @@ We rijden via Wawona naar de Safeway supermarkt in Oakhurst. Op de parkeerplaats
 
 {{< imgproc "images/IMG_3706.jpg" Resize "1024x r0" >}}
 
-Het is supergezellig, en de wagyu verjaardagsbiefstuk is voortreffelijk! Superleuk, om elkaar (voor de derde keer inmiddels) aan de andere kant van de plas te ontmoeten.
+Het is supergezellig, en de wagyu verjaardagsbiefstuk is voortreffelijk!
+
+{{< imgproc "images/IMG_3708.jpg" Resize "1024x r0" >}}
+
+Superleuk, om elkaar (voor de derde keer inmiddels) aan de andere kant van de plas te ontmoeten.
 
 {{< imgproc "images/IMG_7413.JPG" Resize "1024x r0" >}}
 

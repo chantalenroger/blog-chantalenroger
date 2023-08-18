@@ -34,4 +34,4 @@ Na een tijdje hebben we de schat gevonden! Sofie vond het heel erg leuk om te do
 
 {{< imgproc "images/IMG_3594.jpg" Resize "1024x r0" >}}
 
-{{< imgproc "images/IMG_6560.JPG" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_6560.JPG" Resize "1024x r270" >}}
