@@ -16,7 +16,11 @@ Via de CA-395 rijden we richting het noorden. Rond lunchtijd rijden we door het 
 
 {{< imgproc "images/IMG_3748.jpg" Resize "1024x r0" >}}
 
-Halverwege Bridgeport en Walker lunchen we aan de Walker River. Iets voorbij Topaz nemen we de scenic byway CA-89 om via Markleeville naar onze eindbestemming voor vandaag te rijden. Deze weg is echt fantastisch. Het kronkelt en gaat op en neer dat het een lieve lust is. Enige nadeel: er zijn werkzaamheden, en we staan 20 minuten stil in de hitte.
+Halverwege Bridgeport en Walker lunchen we aan de Walker River.
+
+{{< imgproc "images/IMG_7496.JPG" Resize "1024x r0" >}}
+
+Iets voorbij Topaz nemen we de scenic byway CA-89 om via Markleeville naar onze eindbestemming voor vandaag te rijden. Deze weg is echt fantastisch. Het kronkelt en gaat op en neer dat het een lieve lust is. Enige nadeel: er zijn werkzaamheden, en we staan 20 minuten stil in de hitte.
 
 Het inchecken bij de camping Fallen Lead Campground gaat vlot, maar we worden wel gewaarschuwd dat er veel beren activiteit op de camping is. En dus mogen we buiten geen eten onbewaakt laten staan. Na aankomst hebben we direct de zwembroek aangetrokken en zijn naar het meer gewandeld.
 
@@ -26,7 +30,7 @@ De douches op de camping zijn zeer schoon, dus we maken daar graag gebruik van. 
 
 {{< imgproc "images/IMG_3755.jpg" Resize "1024x r0" >}}
 
-Vanavond gaat de ribeye op de grill.
+Vanavond gaat de ribeye op de grill!
 
 {{< imgproc "images/IMG_3756.jpg" Resize "1024x r0" >}}
 
