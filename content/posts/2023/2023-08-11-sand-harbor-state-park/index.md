@@ -12,7 +12,9 @@ tags:
 comments: true
 ---
 
-Deze ochtend staan we vroeg op, want we willen graag naar Emerald Bay aan Lake Tahoe. We zijn er al om 8 uur, maar de parkeerplaatsen staan of al vol, of we mogen er niet in met onze camper. Enorm balen!
+Deze ochtend staan we vroeg op, want we willen graag naar Emerald Bay aan Lake Tahoe. We zijn er al om 8 uur, maar de parkeerplaatsen staan of al vol, of we mogen er niet in met onze camper. Enorm balen! Heel jammer, want vanaf de weg ziet het er al heel mooi uit. We hadden graag naar beneden gelopen om te kijken.
+
+{{< imgproc "images/IMG_7506.JPG" Resize "1024x r0" >}}
 
 Als alternatief denken we er slim aan te doen om naar Sand Harbor State Park te gaan. Dit is een populair zandstrand met kristalhelder water, ook aan Lake Tahoe. Het is meer dan een uur rijden, maar ja, wie gaat er nou om half tien in de ochtend naar een strand??? Nou, meer mensen dan je zou denken! Ook hier zijn alle parkeerplekken vol! Even zakt ons de moed in de schoenen, maar gelukkig is in het nabij gelegen stadje Incline een parkeerplaats (gratis!) waar wij onze RV kunnen/mogen parkeren. Tevens vertrekt vanaf hier een shuttlebus die je in ongeveer 30 minuten naar Sand Harbor brengt (gratis!).
 
