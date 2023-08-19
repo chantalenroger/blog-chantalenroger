@@ -20,4 +20,6 @@ We hadden trouwens nog een akkefietje met de Walmart: we hadden voor aankomst in
 
 Stipt om 3 uur melden we ons na 4600 kilometers gereden te hebben met de camper bij Cruise America in Las Vegas. Bij het inleveren loopt iemand dan met je door de camper om eventuele beschadigingen op te nemen, en mankementen te noteren. We krijgen ongevraagd 2 dagen camperhuur terug :-) Dus twee mooie meevallers op 1 dag!
 
-Nu nog 2 uurtjes rijden naar Saint George, net over de grens in Utah. Hier verblijven nog 4 dagen tot we zondag naar huis vliegen.
+Nu nog 2 uurtjes rijden naar Saint George, net over de grens in Utah. We hebben hier een vakantiehuis gehuurd. Het is gloednieuw, 3 verdiepingen hoog en fantastisch mooi. Superschoon, en van alle gemakken voorzien.
+
+Hier verblijven nog 4 dagen tot we zondag naar huis vliegen.
