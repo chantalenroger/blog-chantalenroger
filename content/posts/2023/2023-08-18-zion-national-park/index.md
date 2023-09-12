@@ -26,14 +26,16 @@ Het is trouwens opvallend rustig, wellicht komt dat door het tijdstip, en de voo
 
 {{< imgproc "images/IMG_7785.JPG" Resize "1024x r0" >}}
 
+{{< imgproc "images/IMG_3947.jpg" Resize "1024x r0" >}}
+
 Na een paar honderd meter komen we aan bij het uitzichtpunt over de vallei. We zijn opgelucht dat we het droog hebben weten te houden. Wel waait het erg stevig hier, dus we komen maar niet al te dicht bij de afgrond.
 
 {{< imgproc "images/IMG_7796.JPG" Resize "1024x r0" >}}
 
-{{< imgproc "images/IMG_7802.JPG" Resize "1024x r0" >}}
+{{< imgproc "images/IMG_3961.jpg" Resize "1024x r0" >}}
 
 Na al dit moois is het tijd om de auto weer op te zoeken. We willen namelijk een beetje op tijd bij The Spotted Dog zijn in Springdale. Iedere keer als we in Zion zijn, proberen we daar namelijk te eten. Een soort van traditie dus, en die houden we met alle liefde in stand.
 
 {{< imgproc "images/spotted-dog-cafe.jpg" Resize "1024x r0" >}}
 
-'s Avonds pakken we nog de laatste spullen in, want morgen moeten we ons huis in St George helaas verlaten. De vakantie zit er al weer op, morgen vliegen we weer naar huis.
+{{< imgproc "images/IMG_3969.jpg" Resize "1024x r0" >}}

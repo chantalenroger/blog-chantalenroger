@@ -12,7 +12,7 @@ tags:
 comments: true
 ---
 
-Vlakbij onze camping ligt Devils Punch Hole. Alleen bij laagwater kun je er via het dan droogliggende strand naar toe lopen. We zijn er al om negen uur, en zijn er helemaal alleen. Vanaf de parkeerplaats kijk je bovenop het gat in de rotsen, door de Duivel zelf gemaakt. Het is nog erg mistig zo vroeg op de ochtend.
+Vlakbij onze camping ligt Devils Punchbowl State Natural Area. Alleen bij laagwater kun je er via het dan droogliggende strand naar toe lopen. We zijn er al om negen uur, en zijn er helemaal alleen. Vanaf de parkeerplaats kijk je bovenop het gat in de rotsen, door de Duivel zelf gemaakt. Het is nog erg mistig zo vroeg op de ochtend.
 
 {{< imgproc "images/IMG_3272.jpg" Resize "1024x r0" >}}
 
