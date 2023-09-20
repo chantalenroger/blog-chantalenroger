@@ -20,4 +20,10 @@ En dan op naar Banff National Park, een ritje van zo'n 120 km. Het blijkt dat al
 
 Op zich rijdt het prima zo'n camper, het is alleen erg lastig om te zien wat er achter je gebeurt.
 
-Bij Banff aangekomen, kopen we een National Parks Pass. Aangezien het inmiddels al redelijk laat is, besluiten we om maar direct een camping op te gaan zoeken. Maar eerst rijden we even naar de Cascade Ponds, wat op de route ligt naar de camping. Het blijkt een leuk meertje te zijn met wat strandjes. We komen uiteindelijk aan bij Two Jack Lakeside Campground. Direct na aankomst op onze plek (nr 56, op zo'n 20 meter van het meer, met een erg mooi uitzicht) hebben we vrijwel direct aanspraak met onze buurman. Hij blijkt zeer enthousiast te zijn en wil ons zelfs morgen zijn auto lenen om om 6 uur in de ochtend op zoek te gaan naar beren en ander wild life. We slaan zijn aanbod vriendelijk af, omdat we morgen nog wat boodschappen moeten doen.
+Bij Banff aangekomen, kopen we een National Parks Pass. Aangezien het inmiddels al redelijk laat is, besluiten we om maar direct een camping op te gaan zoeken. Maar eerst rijden we even naar de Cascade Ponds, wat op de route ligt naar de camping. Het blijkt een leuk meertje te zijn met wat strandjes.
+
+{{< imgproc "images/RIMG0001.JPG" Fit "1024x768 r0" >}}
+
+We komen uiteindelijk aan bij Two Jack Lakeside Campground. Direct na aankomst op onze plek (nr 56, op zo'n 20 meter van het meer, met een erg mooi uitzicht) hebben we vrijwel direct aanspraak met onze buurman. Hij blijkt zeer enthousiast te zijn en wil ons zelfs morgen zijn auto lenen om om 6 uur in de ochtend op zoek te gaan naar beren en ander wild life. We slaan zijn aanbod vriendelijk af, omdat we morgen nog wat boodschappen moeten doen.
+
+{{< imgproc "images/RIMG0011.JPG" Fit "1024x768 r0" >}}
