@@ -22,7 +22,7 @@ Halverwege Bridgeport en Walker lunchen we aan de Walker River.
 
 Iets voorbij Topaz nemen we de scenic byway CA-89 om via Markleeville naar onze eindbestemming voor vandaag te rijden. Deze weg is echt fantastisch. Het kronkelt en gaat op en neer dat het een lieve lust is. Enige nadeel: er zijn werkzaamheden, en we staan 20 minuten stil in de hitte.
 
-Het inchecken bij de camping Fallen Lead Campground gaat vlot, maar we worden wel gewaarschuwd dat er veel beren activiteit op de camping is. En dus mogen we buiten geen eten onbewaakt laten staan. Na aankomst hebben we direct de zwembroek aangetrokken en zijn naar het meer gewandeld.
+Het inchecken bij de camping Fallen Leaf Campground gaat vlot, maar we worden wel gewaarschuwd dat er veel beren activiteit op de camping is. En dus mogen we buiten geen eten onbewaakt laten staan. Na aankomst hebben we direct de zwembroek aangetrokken en zijn naar het meer gewandeld.
 
 {{< imgproc "images/IMG_3754.jpg" Resize "1024x r0" >}}
 
