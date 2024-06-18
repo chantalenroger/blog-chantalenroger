@@ -26,7 +26,7 @@ Onderweg lunchen we op een wilderness campground. Wat een mooi plekje! Jammer da
 
 {{< imgproc "images/IMG_0797.jpg" Resize "1024x" >}}
 
-De uitzichten onderweg zijn geweldig. Er is wel wat verkeer, maar ik denk dat we op de hele weg 10 auto's zijn tegengekomen. Om uit de vallei te komen, moet je de Burr Trail Switchbacks nemen. Dit is een serie haarspeldbochten die stijl de rots trotseert. Spectaculair!
+De uitzichten onderweg zijn geweldig. Er is wel wat verkeer, maar ik denk dat we op de hele weg 10 auto's zijn tegengekomen. Om uit de vallei te komen, moet je de Burr Trail Switchbacks nemen. Dit is een serie haarspeldbochten die steil de rots trotseert. Spectaculair!
 
 {{< imgproc "images/IMG_2594.JPG" Resize "1024x" >}}
 

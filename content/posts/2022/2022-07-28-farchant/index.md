@@ -20,7 +20,7 @@ Onder ons appartementencomplex zit een bakker. We hoeven dus maar 100 meter te l
 
 {{< imgproc "images/IMG_3610.JPG" Fit "1024x768 r270" >}}
 
-Na ongeveer 2 kilometer slaan we rechtsaf de berg op richting de Kuhfluchtwasserfälle. In drie etappes valt het water hier zo'n 270 meter naar beneden en daarmee is deze waterval een van de hoogste van Duitsland. Het pad gaat hier zeer stijl omhoog.
+Na ongeveer 2 kilometer slaan we rechtsaf de berg op richting de Kuhfluchtwasserfälle. In drie etappes valt het water hier zo'n 270 meter naar beneden en daarmee is deze waterval een van de hoogste van Duitsland. Het pad gaat hier zeer steil omhoog.
 
 {{< imgproc "images/IMG_3616.JPG" Fit "1024x768 r0" >}}
 

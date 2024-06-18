@@ -54,7 +54,7 @@ Echt onprettig smal wordt het gelukkig maar heel even, ik moest heel even wat st
 
 {{< imgproc "images/IMG_0845.jpg" Resize "1024x" >}}
 
-De mopperstand van Sofie was, na de overwinning van de 3 meter klim bij de entree, helemaal over en ze had veel plezier in het klimmen en klauteren. Diezelfde mopperstand kwam redelijk snel na de uitgang van de canyon weer terug, want nu moesten we een behoorlijk eind door de woestijn terug wandelen richting de auto. Bovendien moesten we het stijle stuk nu naar boven. Wat we on-Amerikaans vonden, was dat het pad niet duidelijk stond aangegeven. Gelukkig konden we met behulp van een navigatie app met een goed gevoel tussen de rotsen en struiken laveren.
+De mopperstand van Sofie was, na de overwinning van de 3 meter klim bij de entree, helemaal over en ze had veel plezier in het klimmen en klauteren. Diezelfde mopperstand kwam redelijk snel na de uitgang van de canyon weer terug, want nu moesten we een behoorlijk eind door de woestijn terug wandelen richting de auto. Bovendien moesten we het steile stuk nu naar boven. Wat we on-Amerikaans vonden, was dat het pad niet duidelijk stond aangegeven. Gelukkig konden we met behulp van een navigatie app met een goed gevoel tussen de rotsen en struiken laveren.
 
 Op deze foto is goed te zien waar de ingang van de canyon is.
 

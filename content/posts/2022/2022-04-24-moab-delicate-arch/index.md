@@ -20,7 +20,7 @@ Op het programma staat vandaag iets heel leuks: de zonsondergang bekijken bij De
 
 {{< imgproc "images/IMG_0629.jpg" Resize "1024x" >}}
 
-Na het mini wandelingetje rondom de balanced rock, zijn we naar de parkeerplaats gereden waar de wandeling naar Delicate Arch begint. De eerste 500 meter zijn makkelijk over een vlak en breed pad. Daarna wordt het al snel klimmen en klauteren geblazen, waarna je tegen een imposante, vlakke, maar stijl omhoog gaande plaat van rots kijkt. Het is maar een paar honderd meter lopen, maar het is een behoorlijke inspanning. Na deze kuitenbijter wordt het gelukkig weer wat makkelijker.
+Na het mini wandelingetje rondom de balanced rock, zijn we naar de parkeerplaats gereden waar de wandeling naar Delicate Arch begint. De eerste 500 meter zijn makkelijk over een vlak en breed pad. Daarna wordt het al snel klimmen en klauteren geblazen, waarna je tegen een imposante, vlakke, maar steil omhoog gaande plaat van rots kijkt. Het is maar een paar honderd meter lopen, maar het is een behoorlijke inspanning. Na deze kuitenbijter wordt het gelukkig weer wat makkelijker.
 
 {{< imgproc "images/IMG_0641.jpg"  Resize "1024x" >}}
 

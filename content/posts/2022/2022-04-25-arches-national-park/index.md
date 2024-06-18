@@ -20,7 +20,7 @@ Met uitzicht op de boog hebben we geluncht.
 
 {{< imgproc "images/IMG_0697.jpg" Resize "1024x" >}}
 
-Vanaf dit punt wordt de wandeling even wat uitdagend, nu we een stijle rotswand moeten trotseren.
+Vanaf dit punt wordt de wandeling even wat uitdagend, nu we een steile rotswand moeten trotseren.
 
 ![Klimgeit](images/IMG_2413.jpg)
 
