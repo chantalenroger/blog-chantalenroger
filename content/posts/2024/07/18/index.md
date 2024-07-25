@@ -25,7 +25,7 @@ Omdat we de vuurtoren dus nog niet kunnen bezoeken, zijn we maar weer terug naar
 
 ![Rodeo Beach](./images/IMG_4940.jpg)
 
-Stipt om half een melden we ons weer bij de ingang van de tunnel van Point Bonita Lighthouse. We sluiten aan bij het ranger praatje over de ontstaansgeschiedenis van de vuurtoren, om vervolgens samen met haar door de tunnel te wandelen naar de vuurtoren. Na de tunnel moeten we nog over een bruggetje om bij de vuurtoren te komen.
+Stipt om half een melden we ons weer bij de ingang van de tunnel van Point Bonita Lighthouse. We sluiten aan bij het ranger praatje over de ontstaansgeschiedenis van de vuurtoren, om vervolgens samen met haar door de tunnel te wandelen. Na de tunnel moeten we nog over een bruggetje om bij de vuurtoren te komen.
 
 ![Point Bonita Lighthouse](./images/IMG_4947.jpg)
 
