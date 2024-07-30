@@ -1,5 +1,5 @@
 ---
-title: "Onderweg naar Death Valley National Park"
+title: "Mammoth Lakes naar Death Valley National Park"
 date: 2024-07-26T16:14:25+02:00
 publishDate: 2022-04-01T16:14:25+02:00
 author: Chantal en Roger
