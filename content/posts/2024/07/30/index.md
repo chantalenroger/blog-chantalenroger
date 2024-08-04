@@ -29,6 +29,6 @@ We zitten bijna bovenin, en je zou bijna hoogtevrees krijgen als je naar beneden
 
 De film gaat over hoe mooi de natuur is, en dat de mensheid 'm zo ver verwoest heeft dat de mensheid naar de ruimte geevacueerd moet worden op zoek naar een nieuwe plek om te leven.
 
-Toen de film begon, dachten we eerst dat we genaaid waren en dat het scherm niet veel groter zou worden dan op de foto hierboven. Op enig moment zien we de aarde vanuit de ruimte en wordt ingezoomd. Zover dat de film over bijna de hele zaal wordt geprojecteerd. Het beeld in ongelooflijk scherp, en het geluid gaat door lijf en leden. Waanzinnig! De beelden zijn prachtig, en vaak hoor je de zaal oooh eb aah roepen.
+Toen de film begon, dachten we eerst dat we genaaid waren en dat het scherm niet veel groter zou worden dan op de foto hierboven. Op enig moment zien we de aarde vanuit de ruimte en wordt ingezoomd. Zover dat de film over bijna de hele zaal wordt geprojecteerd. Het beeld is ongelooflijk scherp, en het geluid gaat door lijf en leden. Waanzinnig! De beelden zijn prachtig, en vaak hoor je de zaal oooh en aah roepen.
 
 Het is een geweldige ervaring! Na de film rijden we naar de outlet om wat te shoppen en eten.
