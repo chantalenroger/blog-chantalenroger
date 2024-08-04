@@ -55,7 +55,7 @@ Glamping betekent hier trouwens gewoon een groot 2 persoons bed, een stapelbed, 
 
 ![Grand Canyon West](./images/IMG_5290.jpg)
 
-'s Avonds maken we een kampvuur inclusief marshmellows en een onovertroffen sterrenhemel.
+'s Avonds maken we een kampvuur inclusief marshmallows en een onovertroffen sterrenhemel.
 
 ![Grand Canyon West](./images/IMG_5299.jpg)
 

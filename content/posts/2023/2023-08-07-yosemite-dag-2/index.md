@@ -40,4 +40,4 @@ We slapen deze nacht op de Hodgdon Meadow Campground. Ook hier hebben we een moo
 
 {{< imgproc "images/IMG_3679.jpg" Resize "1024x r0" >}}
 
-'s Avonds gaat weer lekker de bbq aan, en zitten we heerlijk bij het kampvuur. Gezellig wat babbelen, en natuurlijk marshmellows roosteren. De avond voltrok zich kortom in volmaakte harmonie.
+'s Avonds gaat weer lekker de bbq aan, en zitten we heerlijk bij het kampvuur. Gezellig wat babbelen, en natuurlijk marshmallows roosteren. De avond voltrok zich kortom in volmaakte harmonie.
