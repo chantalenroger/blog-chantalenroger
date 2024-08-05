@@ -23,7 +23,7 @@ Wij bezoeken vandaag Meow Wolf's Omega Mart. Dit is een niet bestaande supermark
 
 ![Omega Mart](./images/IMG_5331.jpg)
 
-Overal zijn geheime doorgangetjes die je naar de volgende zaal brengt voor nog meer gekkigheid. Zo moeten we vanuit de supermarkt door de koelvitrine lopen om in de fabriek van de winkel te komen. Daar is een audio-visueel spectakel van heb ik jou daar.
+Overal zijn geheime doorgangetjes die je naar de volgende zaal brengen voor nog meer gekkigheid. Zo moeten we vanuit de supermarkt door de koelvitrine lopen om in de fabriek van de winkel te komen. Daar is een audio-visueel spectakel van heb ik jou daar.
 
 ![Omega Mart](./images/IMG_9855.jpg)
 
