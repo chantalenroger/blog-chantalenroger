@@ -11,7 +11,7 @@ draft: false
 comments: true
 ---
 
-Toen we twee weken aankwamen op Las Vegas Airport, zagen we 'm al liggen: de Sphere. De Sphere is een bolvormig muziek- en entertainmentgebouw, dichtbij de Las Vegas Strip. Het is eind vorig jaar geopend en de totale kosten zijn geschat op 2,3 miljard dollar! De Sphere is 112 meter hoog en 157 meter breed in diameter. Het theater heeft aan de buitenzijde 54.000 vierkante meter aan led-schermen, opgebouwd uit 1,2 miljoen led-lampen. Aan de binnenzijde is een led-scherm van 15.000 vierkante meter met een beeldresolutie van 16K geplaatst, bij oplevering het grootste en scherpste scherm ter wereld. Het geluid wordt verzorgd door 167.000 (!) individueel versterkte luidsprekers. Het is een fenomenaal gezicht.
+Toen we twee weken geleden aankwamen op Las Vegas Airport, zagen we 'm vanuit het vliegtuig al liggen: de Sphere. De Sphere is een bolvormig muziek- en entertainmentgebouw, dichtbij de Las Vegas Strip. Het is eind vorig jaar geopend en de totale kosten zijn geschat op 2,3 miljard dollar! De Sphere is 112 meter hoog en 157 meter breed in diameter. Het theater heeft aan de buitenzijde 54.000 vierkante meter aan led-schermen, opgebouwd uit 1,2 miljoen led-lampen. Aan de binnenzijde is een led-scherm van 15.000 vierkante meter met een beeldresolutie van 16K geplaatst, bij oplevering het grootste en scherpste scherm ter wereld. Het geluid wordt verzorgd door 167.000 (!) individueel versterkte luidsprekers. Het is een fenomenaal gezicht.
 
 ![Sphere](./images/IMG_0004.jpg)
 
