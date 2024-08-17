@@ -15,7 +15,7 @@ We worden vandaag op ons gemak wakker, ontbijten en brengen alle spullen weer na
 
 Via het Great Basin Visitor Center, Sofie heeft weer een badge verdiend, rijden we via de Nevada 487, 50 en 93 bovenlangs het park naar het zuiden. Met name de 93 is weer kaarsrecht.
 
-We lunchen in Cathedral Gorge State Park, een overwacht pareltje. We zijn er helemaal alleen!
+We lunchen in Cathedral Gorge State Park, een onverwacht pareltje. We zijn er helemaal alleen!
 
 ![Cathedral Gorge State Park](./images/IMG_5566.jpg)
 
