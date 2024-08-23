@@ -1,5 +1,5 @@
 ---
-title: "Los Angeles–Las Vegas"
+title: "Snow Canyon"
 date: 2015-05-19T16:14:25+02:00
 publishDate: 2022-04-01T16:14:25+02:00
 author: Chantal en Roger
@@ -11,36 +11,36 @@ draft: false
 comments: false
 ---
 
-Sofie keek haar ogen uit op Schiphol en eigenlijk de hele vlucht van tien uur en een kwartier gedraagde ze zich keurig. We hadden haar autostoel mee aan boord genomen, zodat ze goed kon zitten, en een hele hoop speeltjes en kadootjes om haar bezig te houden.
+Of eigenlijk Rain Canyon...
 
-![Schiphol](./images/WP_20150514_07_56_54_Pro3.jpg)
+De campground in Snow Canyon State Park, net over de grens in Utah, ligt mooi, maar ons plekje is erg smal. Gelukkig staat er niemand naast ons, anders hadden we de buren door het raam de handen kunnen schudden.
 
-![Schiphol](./images/WP_20150514_11_47_17_Pro3.jpg)
+![Snow Canyon](./images/85876969740790546673.jpg)
 
-Het vliegen met een kleintje heeft een heel groot voordeel, en dat is dat je bij de douane en de security checks in een aparte rij mag en dat betekende dat we binnen drie kwartier na het landen in LA al bij Alamo stonden om de Chevy Tahoe op te halen. Met de Tahoe op zak zijn we naar ons hotel Hampton Inn & Suites in Agoura Hills gereden. De ontvangst daar en de kamer waren prima in orde. We hebben hier verder niet al te veel gedaan, op een snelle douche en een power nap na. Sofie was klokslag 2 uur in de nacht klaarwakker, dat is dan weer minder leuk. We (of eigenlijk  Chantal, ik mocht nog even doorslapen) hebben Sofie bezig gehouden tot een uur of 5 in de ochtend, waarna we maar zijn gaan aankleden om naar de Walmart en Safeway in Oxnard te gaan voor wat eerste boodschappen. Vanuit Oxnard zijn we richting Malibu gereden om toch nog even een stukje highway one mee te pikken. Meer van de Pacific zullen we niet gaan zien deze trip, behalve op de allerlaatste dag in San Francisco.
+We hebben direct na aankomst een klein wandelingetje gemaakt, waarbij Sofie deels in de rugdrager moest, deels ook zelf kon klimmen.
 
-Om 12 uur konden we de camper ophalen bij Roadbear. We waren de eerste, en dus waren we ook hier binnen 3 kwartier weer weg.
+![Snow Canyon](./images/P10007444.jpg)
 
-![LA](./images/WP_20150515_12_07_36_Pro3.jpg)
+![Snow Canyon](./images/P10007514.jpg)
 
-Omdat het vrijdag is, en er dus veel weekendverkeer van LA naar Las Vegas zal zijn, zijn we maar direct vertrokken: Roger in de camper voorop, gevolgd door Chantal en Sofie in de Chevy. Het verkeer zat behoorlijk tegen tot we op de I-15 aankwamen. Onderweg hebben we nog een snelle hap gedaan bij een soort Griekse McDonalds (de gyros en soevlaki waren erg lekker trouwens!) en uiteindelijk kwamen we om 9 uur 's avonds aan op Oasis RV Resort in Las Vegas.
+![Snow Canyon](./images/P10007564.jpg)
 
-![LA](./images/WP_20150515_19_23_52_Pro3.jpg)
+![Snow Canyon](./images/P10007634.jpg)
 
-De volgende morgen zijn we naar de dolfijnen gaan kijken in de Mirage. Sofie genoot overduidelijk!
+We hebben allemaal goed geslapen, en de volgende ochtend zijn we voor het eerst met de fiets op pad gegaan. Het eerste stuk ging behoorlijk omhoog, maar daarna was het redelijk ontspannen fietsen. Het weer valt wat tegen, er staat een harde koude wind en af en toe viel er een behoorlijke bui. Gelukkig het meeste tijdens het middagslaapje van Sofie.
 
-![Las Vegas](./images/WP_20150516_11_28_47_Pro3.jpg)
+Tegen haar zin in moet Sofie op de fiets een helm op...
 
-Na de lunch hebben we bij Walmart twee fietsen gekocht (80 dollar per stuk, met 18 versnellingen) en een gas-BBQ voor nog geen 20 dollar. Hoe kunnen ze het ervoor doen!
+![Snow Canyon](./images/P10007664.jpg)
 
-Het was een drukke dag geweest, en dus hoopten we een beetje dat Sofie niet weer zo vroeg wakker zou zijn… maar helaas, om 4 uur klaarwakker. En dat betekende dus dat we om 6 uur maar naar de Strip zijn gereden om naar de lampjes te gaan kijken. Ik voelde me toen wel oud, tussen al het uitgaanspubliek wat (van redelijk tot uitermate dronken/ordinair) op weg was naar hun hotel om hun roes uit te slapen, liepen wij met een wandelwagen…
+![Snow Canyon](./images/P10007714.jpg)
 
-Maar goed, het San Marcoplein in de Venetian lag er volledig verlaten bij, dus Sofie kon naar hartenlust rondrennen en trapje op, trapje af, trapje op, trapje af. Ontbijt hebben we dan ook maar meteen in de Venetian gedaan: Chantal een spiegelei, Roger wentelteefjes, een pannenkoek voor Sofie en de mevrouw naast ons een Luikse wafel met gefrituurde kip (!).
+Gelukkig klaarde het vlak voor de lunch even op zodat Sofie lekker in de zand duinen kon spelen terwijl ik de camper ben gaan halen.
 
-![Las Vegas](./images/85876973832701123263.jpg)
+![Snow Canyon](./images/P10007974.jpg)
 
-![Las Vegas](./images/P10007214.jpg)
+![Snow Canyon](./images/P10008004.jpg)
 
-![Las Vegas](./images/P10007064.jpg)
+Halverwege de middag sloeg het weer helemaal om en kwam het met bakken uit de lucht. Geen lol aan, dus zijn we maar snel naar de volgende camping gereden. Ditmaal de KOA in Hurricane, Utah. Op de camping staat een houten beer en die vindt Sofie erg lief...
 
-![Las Vegas](./images/P10007094.jpg)
+![Snow Canyon](./images/P10008254.jpg)
