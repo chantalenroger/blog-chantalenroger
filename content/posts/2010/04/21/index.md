@@ -36,12 +36,12 @@ Aan het eind van de dag nog even lekker wat verkoeling opgezocht in het zwembad.
 
 ## 2 opmerkingen
 
-### MacSprout26 april 2010 om 08:56
+### MacSprout 26 april 2010 om 08:56
 
 Doerian wordt uitvoerig behandeld in het boekwerk "De scheepsjongens van Bontekoe" van Johan Fabricius....
 Appeltje nog bewerkt voor vertrek?
 
-### Anoniem29 april 2010 om 12:47
+### Anoniem 29 april 2010 om 12:47
 
 Als Wow durian heeft gehaald in Amsterdam mag het van mij het huis niet in.
 Dan leggen we het in de schuur. Over het algemeen gaan de buren dan na een paar uur vragen stellen in de trant van: "ligt er een overleden huisdier in jullie schuur?", of: "hebben jullie een industrieel-vet afscheider gekocht?"

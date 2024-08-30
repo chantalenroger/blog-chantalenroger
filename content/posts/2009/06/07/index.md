@@ -18,7 +18,7 @@ Tot over een dag of drie maar weer!
 
 ## 3 opmerkingen
 
-### Anoniem7 juni 2009 om 10:23
+### Anoniem 7 juni 2009 om 10:23
 
 Hoi Chantal en Roger,
 
@@ -28,7 +28,7 @@ Ha, skien in de USA, Roger denk na, daar hebben ze toch geen Zigeuner Schnitzels
 
 Groetjes, Ben en Mascha
 
-### Anoniem9 juni 2009 om 22:32
+### Anoniem 9 juni 2009 om 22:32
 
 Hallo,
 
@@ -40,7 +40,7 @@ Wij komen op dit moment niet verder dan een paar verdwaalde schapen in onze tuin
 Eet ze!
 De Eetclub uit W&A
 
-### Yan en Corne11 juni 2009 om 18:41
+### Yan en Corne 11 juni 2009 om 18:41
 
 Hey Chantal en Roger,
 

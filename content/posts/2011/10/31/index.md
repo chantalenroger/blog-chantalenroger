@@ -22,17 +22,17 @@ Wederom, let niet op het geluid, ik ken mijn beperkingen!
 
 ## 3 opmerkingen
 
-### Anoniem1 november 2011 om 15:50
+### Anoniem 1 november 2011 om 15:50
 
 Je moet countryzanger worden in plaats van die levensgevaarlijke paden op te zoeken. Zal blij zijn als jullie weer veilig in ons platte landje zijn. Amuseer je nog en de groeten van ons beiden. Pa.
 
-### Anoniem1 november 2011 om 17:58
+### Anoniem 1 november 2011 om 17:58
 
 krijg een beetje plaatsvervangende Vertigo.... tjee wat een end naar beneden..
 Stoerrrrr.
 En nu een biertje..
 
-### Gerard3 november 2011 om 18:08
+### Gerard 3 november 2011 om 18:08
 
 Hallo Chantal en Roger.
 Wel erg mooi Hidden Canyon en een prachtige wandeling. Voor Roger een goede voorbereiding op de komende dagen.....

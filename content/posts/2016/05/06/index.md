@@ -31,6 +31,6 @@ Wat een spektakel! Dat is toch wel iets wat die Amerikanen heel erg goed kunnen!
 
 ## 1 opmerking
 
-### Gerard13 mei 2016 om 00:58
+### Gerard 13 mei 2016 om 00:58
 
 Leuk te zien hoe jullie genieten

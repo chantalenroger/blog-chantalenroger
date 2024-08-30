@@ -26,6 +26,6 @@ We zijn direct met de metro naar Times Square gegaan om onze New York City Pass 
 
 ## 1 opmerking
 
-### Sergio30 mei 2012 om 13:00
+### Sergio 30 mei 2012 om 13:00
 
 1776 - onafhankelijkheidsverklaring...toen waren zij de terroristen ;-)

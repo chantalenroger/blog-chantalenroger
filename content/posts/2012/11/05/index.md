@@ -34,7 +34,7 @@ Zometeen rijden we weer richting Seattle en is het uit met de vakantiepret, er m
 
 ## 1 opmerking
 
-### David7 november 2012 om 08:20
+### David 7 november 2012 om 08:20
 
 wow hoeveel foto's moest je maken om die ene zalm zo mooi erop te krijgen? :-D
 

@@ -45,6 +45,6 @@ Het wandelen bij papa in de rugdrager bevalt duidelijk prima!
 
 ## 1 opmerking
 
-### Gerard13 mei 2016 om 01:05
+### Gerard 13 mei 2016 om 01:05
 
 Dat is toch maar weer lekker genieten met z'n drieën!!!!!!

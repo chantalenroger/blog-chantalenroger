@@ -32,13 +32,13 @@ Na een bezoek aan Red Rock Canyon zijn we uiteindelijk geland op Oasis RV Resort
 
 ## 2 opmerkingen
 
-### Anoniem23 juni 2013 om 15:43
+### Anoniem 23 juni 2013 om 15:43
 
 Blijft leuk om die mooie natuur ff af te wisselen met Crazy Vegas.
 Volgens mij hebben jullie deze reis de zwembaden hard nodig....
 Veel plezier nog!
 Jullie campermaatjes
 
-### David24 juni 2013 om 11:29
+### David 24 juni 2013 om 11:29
 
 ach gewoon veel bier voor onderweg meenemen ;-)

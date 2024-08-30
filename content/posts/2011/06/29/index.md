@@ -20,7 +20,7 @@ Maar zoals gezegd, we zijn inmiddels weer in Yosemite. We blijven hier tot en me
 
 ## 1 opmerking
 
-### Gerard2 juli 2011 om 11:28
+### Gerard 2 juli 2011 om 11:28
 
 Dag vakantiegangers,
 

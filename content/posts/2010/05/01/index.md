@@ -22,10 +22,10 @@ De eerste dag hebben we een beetje boodschappen gedaan en een stukje richting Li
 
 ## 2 opmerkingen
 
-### David3 mei 2010 om 10:01
+### David 3 mei 2010 om 10:01
 
 Wat een degradatie die camper ... vergeleken met de US ;-)
 
-### fam. van Kuil (junior)7 mei 2010 om 22:15
+### fam. van Kuil (junior) 7 mei 2010 om 22:15
 
 Wat een grappig huisje!

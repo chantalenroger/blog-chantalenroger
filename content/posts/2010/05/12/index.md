@@ -26,25 +26,25 @@ Dit spinnetje heeft een behoorlijk lijf, ik schat zo’n 5 centimeter. Maar wat 
 
 ## 4 opmerkingen
 
-### Je collega ;-)11 mei 2010 om 11:12
+### Je collega ;-) 11 mei 2010 om 11:12
 
 Hey Roger,
 
 heb je nog aan ETL gedacht??
 
-### Anoniem11 mei 2010 om 11:15
+### Anoniem 11 mei 2010 om 11:15
 
 Je kan beter aan de "Red-back Spiders" denken hoor. Deze zijn klein maar zeer giftig.... en bevinden zich ook graag in toiletten... dus Chantal wel overheen piesen maar niet op gaan zitten....
 
 Gr. MacSprout
 
-### Je collega ;-)11 mei 2010 om 11:17
+### Je collega ;-) 11 mei 2010 om 11:17
 
 Bedoel je niet toevallig de ETL-Back Spiders ;-)
 
 Kan je ook overheen piesen natuurlijk.....
 
-### Anoniem13 mei 2010 om 11:38
+### Anoniem 13 mei 2010 om 11:38
 
 Allemaal beestjes, dus.
 Zo te horen geen last van de mozzies.

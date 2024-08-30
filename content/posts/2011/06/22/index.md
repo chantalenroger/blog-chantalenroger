@@ -18,7 +18,7 @@ We hebben in 2008 een aantal dagen doorgebracht in Grand Teton National Park, vo
 
 ## 1 opmerking
 
-### Anoniem23 juni 2011 om 19:50
+### Anoniem 23 juni 2011 om 19:50
 
 Hallo,
 

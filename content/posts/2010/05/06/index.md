@@ -30,6 +30,6 @@ Op de camping is ook enorm veel wildlife. Ze komen zelfs ongenodigd op het eten.
 
 ## 1 opmerking
 
-### Anoniem8 mei 2010 om 21:24
+### Anoniem 8 mei 2010 om 21:24
 
 Hey hey, geen cola light?

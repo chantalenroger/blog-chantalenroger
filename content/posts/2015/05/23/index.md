@@ -37,7 +37,7 @@ Om de dag feestelijk af te sluiten zijn we gaan eten bij het Red Cliffs restaura
 
 ## 1 opmerking
 
-### Gerard25 mei 2015 om 00:37
+### Gerard 25 mei 2015 om 00:37
 
 Hallo Vakantiegangers,
 

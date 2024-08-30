@@ -23,6 +23,6 @@ Sofie heeft zich gedurende de 10 uur en 20 minuten durende vlucht voorbeeldig ge
 
 ## 1 opmerking
 
-### Gerard13 mei 2016 om 00:56
+### Gerard 13 mei 2016 om 00:56
 
 Ja, je kunt Sofie goed mee op reis nemen. Ze is bij mama en papa, dan is alles goed.

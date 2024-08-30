@@ -28,13 +28,13 @@ Eigenlijk is het allemaal wel wat triest: Amerikanen sparen een jaar lang om dan
 
 ## 2 opmerkingen
 
-### Anoniem22 oktober 2011 om 20:43
+### Anoniem 22 oktober 2011 om 20:43
 
 Ja maar ja maar ja maar, waarom wil je nog naar de dufdays als je die meid hebt gezien?
 Grt,
 Ronald
 
-### Anoniem26 oktober 2011 om 18:54
+### Anoniem 26 oktober 2011 om 18:54
 
 Prachtig, Las Vegas! Ik denk dat die moeders ook heel trots zijn om zo'n lekkere dochter af te leveren!
 Groeten, Ben

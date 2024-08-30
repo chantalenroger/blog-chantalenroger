@@ -30,6 +30,6 @@ Bij eerdere bezoeken aan de Canyon zijn we nooit toegekomen aan de Hermits Rest 
 
 ## 1 opmerking
 
-### Gerard18 juni 2013 om 10:09
+### Gerard 18 juni 2013 om 10:09
 
 Hallo vakantiegangers. Na een weekje Praag heb ik een inhaalslag op de blog gedaan. Ik moet zeggen Praag is mooi, maar tekent schril af tegen wat ik lees en zie op jullie foto's. Veel plezier nog

@@ -47,6 +47,6 @@ Na het avondeten zijn we naar de zonsondergang gaan kijken op het strand.
 
 ## 1 opmerking
 
-### Gerard8 september 2016 om 19:02
+### Gerard 8 september 2016 om 19:02
 
 Toch lekker zo'n korte vakantie. Geniet er maar lekker van. Hoop maar dat Sofie niet van de "spoken" gaat dromen😏.

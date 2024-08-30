@@ -22,7 +22,7 @@ Verder gaat alles goed hier.
 
 ## 1 opmerking
 
-### Anoniem15 juni 2009 om 10:54
+### Anoniem 15 juni 2009 om 10:54
 
 Een goeie drol zit niet 500 gram, het gewicht ligt echt lager hoor. Ik schat niet dat het boven 200 gram komt, waarschijnlijk niet eens boven de 100 gram. Maar ach, voor alles moet er een 1e keer zijn, klaarblijkelijk ook voor dit, dus zal ik 1 dezer dagen mijn bevindingen wel even doorgeven.....
 

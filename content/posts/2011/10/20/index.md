@@ -26,12 +26,12 @@ Jullie kunnen het hier allemaal weer gaan lezen.
 
 We hebben d'r in ieder geval zin an!
 
-## 2 opmerkingen:
+## 2 opmerkingen
 
-### Anoniem20 oktober 2011 om 16:48
+### Anoniem 20 oktober 2011 om 16:48
 
 Hallo, goede reis
 
-### Adi Derksen23 oktober 2011 om 11:03
+### Adi Derksen 23 oktober 2011 om 11:03
 
 Chantal en Roger, een hele fijne tijd in Vegas!

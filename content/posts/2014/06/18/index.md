@@ -41,10 +41,10 @@ De volgende morgen zijn we eens gaan kijken bij Lake Tahoe. Het was mooi weer en
 
 ## 2 opmerkingen
 
-### Gerard19 juni 2014 om 23:49
+### Gerard 19 juni 2014 om 23:49
 
 Hallo vakantiegangers. Het gaat jullie, met z'n drieën zo, te zien erg goed. Ook Sofie geniet zeker met big Daddy en Mom at Lake Tahoe. Oma en Opa genieten daarvan op afstand.
 
-### Anoniem22 juni 2014 om 04:06
+### Anoniem 22 juni 2014 om 04:06
 
 Ha globetrotters, ziet er allemaal goed uit. Vonden jullie Lassen Volcanic ook prachtig? Waar spreken we de volgende keer af? Have fun!

@@ -26,7 +26,7 @@ Hier rijdt een stoomtrein een stuk het binnenland in, eens kijken of we morgen e
 
 ## 1 opmerking
 
-### Gerard16 juni 2011 om 11:02
+### Gerard 16 juni 2011 om 11:02
 
 Hallo Daar,
 Jullie mogen zeker wel in je sas zijn met die luxe camper. Wat een ding! Dit rijdt natuurlijk prachtig. De route is erg mooi en we maken zo nu en dan ook even een uitstapje via Google maps. Je krijgt dan een beter beeld van hetgeen jullie zien en beleven.

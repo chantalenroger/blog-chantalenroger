@@ -22,7 +22,7 @@ De uitzichten onderweg zijn spectaculair en al met al was het een vermoeiende en
 
 ## 1 opmerking
 
-### Gerard9 juli 2011 om 00:38
+### Gerard 9 juli 2011 om 00:38
 
 Hallo Chantal en Roger,
 

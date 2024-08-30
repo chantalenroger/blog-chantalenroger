@@ -29,6 +29,6 @@ Ik tik dit berichtje bij ons kampvuur en om ons heen zwermen al vuurvliegjes. Ee
 
 ## 1 opmerking
 
-### Ronald12 juni 2012 om 07:44
+### Ronald 12 juni 2012 om 07:44
 
 Heb je een opname van Marvin gemaakt? Ik ben wel benieuwd hoe dat klinkt.

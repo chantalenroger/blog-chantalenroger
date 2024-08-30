@@ -40,7 +40,7 @@ Alles is erg schoon gelukkig, en we hebben lekker zelf gekookt: meatloaf, aardap
 
 ## 1 opmerking
 
-### Anoniem5 november 2012 om 10:01
+### Anoniem 5 november 2012 om 10:01
 
 Haha,
 gevonden, nu kunnen weer antwoorden.

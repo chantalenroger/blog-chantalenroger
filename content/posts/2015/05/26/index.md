@@ -39,7 +39,7 @@ Om af te koelen van al dat spektakel zijn we op de camping weer direct, inclusie
 
 ## 1 opmerking
 
-### Gerard3 juni 2015 om 23:59
+### Gerard 3 juni 2015 om 23:59
 
 Hallo Vakantiegangers,
 

@@ -25,7 +25,7 @@ En toen was de maat vol: de tweede nacht op Blue Heron hebben we geschonken aan 
 
 ## 1 opmerking
 
-### Gerard17 juni 2012 om 11:58
+### Gerard 17 juni 2012 om 11:58
 
 Na zelf een weekje afwezig te zijn geweest heb toch wel even wat in te halen. Ik denk dat de enkele teleurstellingen niet opwegen tegen alle mooie belevenissen. Geen bier op het terras.... welke idioot heeft dat bedacht? Bier in een mok doet denken aan Duitsland maar die hebben dan weer een deksel op de mok. Jullie komen niets te kort lijkt me.
 Veel plezier nog deze week.

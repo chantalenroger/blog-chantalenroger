@@ -37,6 +37,6 @@ De volgende ochtend hebben we rustig aan gedaan, en zijn pas rond lunch vertrokk
 
 ## 1 opmerking
 
-### Gerard29 mei 2016 om 10:09
+### Gerard 29 mei 2016 om 10:09
 
 Wat een leuke speeltuin en wat een grappige kindveilige schommel. Sofie kijkt haar ogen uit en wij genieten mee van de prachtige uitzichten over de Grand Canyon.

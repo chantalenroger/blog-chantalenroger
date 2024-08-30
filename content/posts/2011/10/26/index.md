@@ -30,7 +30,7 @@ We zijn zojuist gearriveerd in Page, Arizona en om hier te komen hebben we vier 
 
 ## 3 opmerkingen
 
-### Anoniem26 oktober 2011 om 15:37
+### Anoniem 26 oktober 2011 om 15:37
 
 Ugh, chique zo'n tipi, is weer eens wat anders.
 Spectaculaire tochten over die bergpaden, lijkt me geweldig spannend, zou ik ook wel willen.
@@ -38,7 +38,7 @@ Prachtige auto overigens, zal wel ontspannen rijden, tenminste als je op de norm
 
 De groeten uit het Heerlense en nog veel plezier.
 
-### Gerard27 oktober 2011 om 10:55
+### Gerard 27 oktober 2011 om 10:55
 
 Toch weer een mooi stukje USA met enerverende autoritten. Erg leuk lijkt me.
 De tipi is toch wel erg groot. Heb je ook foto's van binnen gemaakt. Ben erg benieuwd.
@@ -47,6 +47,6 @@ Veel plezier verder.
 Groetjes
 H&G
 
-### Adi Derksen31 oktober 2011 om 08:29
+### Adi Derksen 31 oktober 2011 om 08:29
 
 Wat leuk zeg en avontuurlijk!

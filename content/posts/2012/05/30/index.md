@@ -34,17 +34,17 @@ Hierna hebben we nog het 9-11 Memorial bezocht. Op de plek waar de twee WTC tore
 
 ## 3 opmerkingen
 
-### Anoniem29 mei 2012 om 22:04
+### Anoniem 29 mei 2012 om 22:04
 
 Een geboren Cuijkenaar met een aussie accent genaamd De Boer, of lees ik het verkeerd. Mooie verslagen. Have fun! B uit W&A
 
-### Mac29 mei 2012 om 22:31
+### Mac 29 mei 2012 om 22:31
 
 Weer mooie epistels en plaatjes, keep up the good work!!
 Oranje gestroomlijnde toeter op je hoofd en gaan, want de rest van het lichaam is al gestroomlijnd genoeg natuurlijk.
 Veel plezier en lees je later...
 
-### Anoniem30 mei 2012 om 09:26
+### Anoniem 30 mei 2012 om 09:26
 
 Bekende locaties die jullie hebben aangedaan! Erg herkenbaar. Of ik er deze maand nog was ;-)
 

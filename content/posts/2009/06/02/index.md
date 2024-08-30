@@ -28,12 +28,12 @@ UPDATE: na 4 uur wachten krijgen we te horen dat er iets in het linker remblok i
 
 ## 4 opmerkingen
 
-### Unknown2 juni 2009 om 23:56
+### Unknown 2 juni 2009 om 23:56
 
 In het wilde westen moet je ook niet cruisen met Horse Power maar met Horses, YiHaa....
 Ach het bier is nu toch koud, kan het eigenlijk al niet meer stuk toch.... en een meeting met Big'O' himself is toch een ervaring om niet te missen... Hoop dat dit het laatste gevalletje was.. BBQ, Beer en Babe heb je dus wat wil je nog meer :-)
 
-### Anoniem3 juni 2009 om 16:02
+### Anoniem 3 juni 2009 om 16:02
 
 "In america, names have no meaning"
 (Butch, zittend achterin de taxi nadat ie de bokswedstrijd had gewonnen).
@@ -42,13 +42,13 @@ Grtz,
 
 Ronald
 
-### Gerard3 juni 2009 om 23:20
+### Gerard 3 juni 2009 om 23:20
 
 Jammer van een bijna verloren dag, maar toch veiligheid gaat boven alles. En jullie zijn nu zonder piepende remmen niet meer hoorbaar voor de beren. Misschien wordt de kans om ze te zien wel wat groter voor jullie. Roger, als ik het goed heb mag je niet met een BBQ onder een boom.
 Wellicht valt er door de warmte extra proteïne uit de boom op je vlees. mmm.....
 Doei and have a good travel you2.
 Gerard
 
-### fam. van Kuil (junior)5 juni 2009 om 19:37
+### fam. van Kuil (junior) 5 juni 2009 om 19:37
 
 En nu maar hopen dat jullie vanaf nu lekker door kunnen cruisen in dat oh zo mooie gebied. Het ziet er prachtig uit!;)

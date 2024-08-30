@@ -37,11 +37,11 @@ Vanaf de camping kun je trails volgen die het nationale park ingaan. We hebben e
 
 ## 2 opmerkingen
 
-### Anoniem3 juni 2016 om 01:37
+### Anoniem 3 juni 2016 om 01:37
 
 Gave wandeling!!
 Straks nog naar Spotted Dog???
 
-### Gerard3 juni 2016 om 02:49
+### Gerard 3 juni 2016 om 02:49
 
 Jullie hebben met z'n drieën een geweldige tijd. Leuk ook te zien hoe onze kleine globetrotter Sofie het doet.

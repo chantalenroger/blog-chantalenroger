@@ -35,6 +35,6 @@ Het was al met al een leuke dag, ondanks de constante bas op de achtergrond, maa
 
 ## 1 opmerking
 
-### Gerard8 september 2016 om 18:55
+### Gerard 8 september 2016 om 18:55
 
 Leuk zo'n prieeltje achter je tent,je kunt er relaxed eten. Sofie heeft het zo te zien erg naar de zin.

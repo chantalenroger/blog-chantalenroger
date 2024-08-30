@@ -31,19 +31,19 @@ In ieder geval leuk dat er reacties op onze berichtjes zijn gekomen, en tot snel
 
 ## 4 opmerkingen
 
-### Gerard31 mei 2009 om 10:13
+### Gerard 31 mei 2009 om 10:13
 
 Hé vakantiegangers.
 Ik ben jaloers, niet op het koude bier, maar wel op de mooie omgeving waarin jullie reizen. En, die grote boom de sequoia, die had ik ook in de tuin. Maar goed, dat hij een overplanting niet heeft gehaald. Ten slotte, doe maar niet de groeten aan Beer....
 
 Groetjes
 
-### Sergio1 juni 2009 om 14:44
+### Sergio 1 juni 2009 om 14:44
 
 Wat ben je klein naast zo'n boom!!!
 veel plezier
 
-### Anoniem2 juni 2009 om 09:10
+### Anoniem 2 juni 2009 om 09:10
 
 Gisterochtend heb ik 'Pulp Fiction' maar weer eens aangezet.
 Ik ben gekomen tot het deel waarin Mia de stash van Vincent op een verkeerde manier probeerde te consumeren. Op dat moment kwam Lorelai bij me zitten, en om haar op zo'n jonge leeftijd daar nou mee te confronteren.....
@@ -53,7 +53,7 @@ Grtz,
 
 Ronald
 
-### Anoniem22 juni 2009 om 16:32
+### Anoniem 22 juni 2009 om 16:32
 
 Zie nu hoe het moet. Leren alles, gaat alleen niet meer zo vlug.
 Wiel Baten

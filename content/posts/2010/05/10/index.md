@@ -20,6 +20,6 @@ Af en toe moesten we behoorlijk klimmen, maar de uitzichten waren heel mooi. Wat
 
 ## 1 opmerking
 
-### David10 mei 2010 om 13:40
+### David 10 mei 2010 om 13:40
 
 Kamelen? je bedoelt dromedarissen (tenminste op de foto)

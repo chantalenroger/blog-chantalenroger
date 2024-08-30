@@ -55,10 +55,10 @@ De volgende ochtend zijn we nog even gaan zwemmen en zijn toen naar de volgende 
 
 ## 2 opmerkingen
 
-### Anoniem20 mei 2016 om 22:00
+### Anoniem 20 mei 2016 om 22:00
 
 Lekker de warmte in. Samen in de hangmat met dezelfde glimlach! Wij strepen nu elke dag af!! Have fun :)
 
-### Gerard21 mei 2016 om 01:16
+### Gerard 21 mei 2016 om 01:16
 
 Wat lekker zo'n mooie camping na een drukke warme dag en wat fijn zo'n hangmat die waarschijnlijk volledig door de meisjes is geannexeerd!

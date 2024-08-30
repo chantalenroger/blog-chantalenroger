@@ -24,7 +24,7 @@ Maar 's middags zijn we eerst gaan offroaden. Niet echt super uitdagend allemaal
 
 ## 1 opmerking
 
-### Gerard25 oktober 2011 om 01:02
+### Gerard 25 oktober 2011 om 01:02
 
 Hallo Vakantiegangers.
 

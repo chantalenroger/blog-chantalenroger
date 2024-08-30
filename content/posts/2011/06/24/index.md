@@ -36,7 +36,7 @@ Morgen gaan we richting Lake Tahoe, wat op de grens tussen Californie en Nevada 
 
 ## 2 opmerkingen
 
-### Sergio27 juni 2011 om 21:17
+### Sergio 27 juni 2011 om 21:17
 
 Niet vergeten!!!
 
@@ -50,7 +50,7 @@ We are located in the heart of Yosemite Valley, between the Visitor Center and P
 
 groetjes!
 
-### Gerard30 juni 2011 om 23:47
+### Gerard 30 juni 2011 om 23:47
 
 Hallo Chantal en Roger.
 Het zijn toch allemaal plaatjes die zo op een mooie kalender over de VS zouden passen en volgens mij genieten jullie met volle teugen.

@@ -28,7 +28,7 @@ Tot later!
 
 ## 2 opmerkingen
 
-### Gerard30 oktober 2011 om 11:45
+### Gerard 30 oktober 2011 om 11:45
 
 Het blijven bijzondere plaatjes die grotten.
 Ondanks koud koud koud.... is de Brrrrryce Canyon toch wel erg mooi. Het weer is jullie daar goed gezind want het zonnetje schijnt. Veel plezier nog in Zion National Park.
@@ -36,6 +36,6 @@ Ondanks koud koud koud.... is de Brrrrryce Canyon toch wel erg mooi. Het weer is
 Groetjes
 Mams en paps
 
-### Anoniem30 oktober 2011 om 15:44
+### Anoniem 30 oktober 2011 om 15:44
 
 Idd da's koud! Maar ik zie dat jullie boerenbruin kunnen gaan halen. Have fun. Blijkbaar is het oostelijker wat warmer. We proberen het toch ook vandaag weer met korte outfit. H&B

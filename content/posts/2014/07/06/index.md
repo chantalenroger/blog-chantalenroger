@@ -35,7 +35,7 @@ Na de drukte bij de Falls hebben we heel even de drukte op de interstates rond P
 
 ## 1 opmerking
 
-### Gerard7 juli 2014 om 10:06
+### Gerard 7 juli 2014 om 10:06
 
 Hallo Vakantiegangers,
 Ik denk als ik alle foto's zie dat de bedenkingen van Sofie wel meevallen. Ik denk eerder dat ze aandachtig al het nieuwe aan het opnemen is. Zo klein en zoveel nieuwe indrukken is toch wel heel bijzonder. Jullie genieten in volle teugen al de derde week.

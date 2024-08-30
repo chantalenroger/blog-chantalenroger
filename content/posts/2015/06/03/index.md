@@ -45,7 +45,7 @@ Na de wandeling zijn we naar Pahrump gereden waar we overnachten op 1000 Lakes R
 
 ## 1 opmerking
 
-### Gerard8 juni 2015 om 09:07
+### Gerard 8 juni 2015 om 09:07
 
 Het zijn en blijven prachtplaatjes en Sofie is al een echte globetrotter, zo blij en zo actief.
 Veel plezier nog, de tijd schiet al weer op.

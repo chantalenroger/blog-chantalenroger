@@ -26,7 +26,7 @@ Na de middag zijn we weer naar Fishermans Warf gegaan, met de cablecar.
 
 ## 1 opmerking
 
-### Gerard14 juni 2011 om 11:47
+### Gerard 14 juni 2011 om 11:47
 
 Hallo Chantal en Roger.
 Wat een pokdalige kop heeft de albino. Het lijkt wel erger dan die van de gekleurde versie.

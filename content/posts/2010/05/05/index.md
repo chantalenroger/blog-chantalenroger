@@ -20,11 +20,11 @@ comments: false
 
 ## 2 opmerkingen
 
-### David6 mei 2010 om 06:36
+### David 6 mei 2010 om 06:36
 
 Databases en SQL Server (ook op vakantie!)
 
-### Anoniem8 mei 2010 om 21:20
+### Anoniem 8 mei 2010 om 21:20
 
 Renaults en kwaliteit ....
 
