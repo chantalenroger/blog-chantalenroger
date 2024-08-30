@@ -49,6 +49,6 @@ Na een goede nachtrust hebben we voor de eerste keer onze fietsen uit de kelder 
 
 ## 1 opmerking
 
-### Gerard14 mei 2016 om 10:37
+### Gerard 14 mei 2016 om 10:37
 
 Jullie zaten dus buiten de gevarenzone en dat levert toch mooie plaatjes op. Je hebt trouwens zo te zien weer goede rijwielen.

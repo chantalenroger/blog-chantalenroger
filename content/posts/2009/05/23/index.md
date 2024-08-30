@@ -26,7 +26,7 @@ Death Valley is het laagste punt van Noord Amerika, ben zojuist op 86 meter onde
 
 ## 6 opmerkingen
 
-### Anoniem25 mei 2009 om 23:37
+### Anoniem 25 mei 2009 om 23:37
 
 Hallo Daar,
 
@@ -38,7 +38,7 @@ Veel plezier!
 
 De eetclub uit W&A
 
-### Helen van Kuil26 mei 2009 om 00:18
+### Helen van Kuil 26 mei 2009 om 00:18
 
 Hallo Chantal en Roger,
 Wat een mooie omgeving is het daar.
@@ -47,7 +47,7 @@ Hier in Nederland is het ook mooie weer maar gelukkig niet zo warm als bij julli
 
 Liefs en groetjes en nog heel veel plezier!
 
-### Anoniem26 mei 2009 om 08:47
+### Anoniem 26 mei 2009 om 08:47
 
 Hey Roger,
 
@@ -58,7 +58,7 @@ Leuke camper hoor, maak ook eens foto's van het interieur?
 Groetjes,
 David
 
-### Anoniem26 mei 2009 om 20:48
+### Anoniem 26 mei 2009 om 20:48
 
 Roger, als je koelkast stuk is, dan moet je bier voor de roostertjes in het dashboard zetten. Zet vervolgens de airco op 100 en klaar is Cees.
 
@@ -69,11 +69,11 @@ Groetjes,
 
 Ronald
 
-### Unknown28 mei 2009 om 23:07
+### Unknown 28 mei 2009 om 23:07
 
 Roger, denk Engels dan is een lauw biertje ook acceptabel..... (niet ech). Maar zijn jullie nog Death Valley uitgekomen, of leven jullie daar nu van ratelslangen. Reminder de zon komt op in het oosten... so u know... ;-)
 
-### Gerard30 mei 2009 om 11:26
+### Gerard 30 mei 2009 om 11:26
 
 Hallo daar, wij zijn erg benieuwd hoe het gaat met jullie en willen graag wat van je belevenissen meegenieten. De blog is echter erg stil. Wij denken dat jullie geen tijd over hebben om de blog te vullen gezien alle wat je meemaakt en ziet.
 Groetjes

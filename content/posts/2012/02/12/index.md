@@ -34,7 +34,7 @@ Wat je noemt "a room with a view"...
 
 ## 1 opmerking
 
-### Anoniem13 februari 2012 om 10:09
+### Anoniem 13 februari 2012 om 10:09
 
 Is heel mooi, moeten wij toch maar 'ns met de caravan naar toe. Hebben jullie ook nog lekker weer? En zijn er ook tapa's zoals in Sevilla?
 Wij wensen jullie nog veel plezier en tot ziens.

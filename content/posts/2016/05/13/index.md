@@ -37,10 +37,10 @@ Na al dit moois hebben we wat boodschappen gedaan en naar de volgende camping ge
 
 ## 2 opmerkingen
 
-### Gerard14 mei 2016 om 10:19
+### Gerard 14 mei 2016 om 10:19
 
 Roger, je moet Sofie ook uitleggen dat alleen lieveheersbeestjes rood zijn en stippels hebben. Het is trouwens maar goed dat Sofie bij Roger op de schouder zit. Zij kan hem de weg wijzen want zien kan hij niks!!!!!
 
-### Anoniem15 mei 2016 om 19:39
+### Anoniem 15 mei 2016 om 19:39
 
 Toet toet, tuuuut tuuuut! Hopelijk hebben jullie toch lekker geslapen. Gisteren leuke bruiloft gehad. Nu zijn wij ook klaar voor de USA. De eerste stapjes zijn gezet, dus dat wordt een hike van 0,25M. Leuk dat jullie zo'n plezier hebben. Duidelijk dat jij Roger Mouse een echte wizard bent haha!

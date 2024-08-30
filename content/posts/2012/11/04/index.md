@@ -34,7 +34,7 @@ Verkleumd zijn we weer naar Port Angeles gereden om wat boodschappen te doen voo
 
 ## 1 opmerking
 
-### Anoniem6 november 2012 om 10:25
+### Anoniem 6 november 2012 om 10:25
 
 Al jullie verhalen doen nieuwe plannen kweken in downunder. Genieten nog maar ff.
 B&H

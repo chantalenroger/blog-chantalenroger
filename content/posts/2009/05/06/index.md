@@ -17,7 +17,7 @@ Nog 8 werkdagen... het was een vermoeiend jaar...
 
 ## 5 opmerkingen
 
-### fam. van Kuil (junior)10 mei 2009 om 19:58
+### fam. van Kuil (junior) 10 mei 2009 om 19:58
 
 Hey hallo!
 We gaan zeker jullie blog bijhouden!
@@ -28,7 +28,7 @@ We bellen!!!!!
 
 Veel liefs van fam. van kuil (junior)
 
-### Gerard13 mei 2009 om 00:04
+### Gerard 13 mei 2009 om 00:04
 
 hello You2,
 
@@ -40,11 +40,11 @@ Groetjes
 
 Helen en Gerard
 
-### Anoniem18 mei 2009 om 12:18
+### Anoniem 18 mei 2009 om 12:18
 
 Hallo
 
-### Anoniem19 mei 2009 om 12:22
+### Anoniem 19 mei 2009 om 12:22
 
 Alvast veel plezier en kijk uit in de buurt van de varkentjes...
 Grtz,

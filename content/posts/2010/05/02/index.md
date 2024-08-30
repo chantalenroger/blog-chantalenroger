@@ -22,7 +22,7 @@ Daarna zijn we naar Walker Creek gewandeld, en lekker gezwommen in een riviertje
 
 ## 1 opmerking
 
-### Anoniem5 oktober 2010 om 19:12
+### Anoniem 5 oktober 2010 om 19:12
 
 What the fuck, ligt een croc met een pet op in de creek!
 

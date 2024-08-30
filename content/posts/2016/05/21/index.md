@@ -47,6 +47,6 @@ Na terugkomst bij de camper zijn we doorgereden naar Flagstaff, waar we, na wat 
 
 ## 1 opmerking
 
-### Gerard25 mei 2016 om 00:55
+### Gerard 25 mei 2016 om 00:55
 
 Wat een mooie omgeving en wat levert die erg mooie plaatjes. Sofie heeft het zo te zien erg naar de zin en het lijkt of ze erg op haar gemak is. Genieten jullie er maar lekker van!!

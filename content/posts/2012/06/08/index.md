@@ -42,7 +42,7 @@ Country-legende (?) Dolly Parton heeft hier haar eigen pretpark Dollywood. Helaa
 
 ## 1 opmerking
 
-### Anoniem12 juni 2012 om 22:24
+### Anoniem 12 juni 2012 om 22:24
 
 Op zo'n overdreven minigolfbaan spelen lijkt me lachen, omdat 't zo belachelijk is. Leuke avonturen hoor, jammer dat je zo vroeg een plekje moet claimen. Oosterijk geniet van alle berenverhalen.
 Groetjes

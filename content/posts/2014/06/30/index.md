@@ -21,7 +21,7 @@ Na de drukke reisdag hebben we de volgende dag rustig aan gedaan. Zijn naar Bend
 
 ## 1 opmerking
 
-### Anoniem30 juni 2014 om 22:08
+### Anoniem 30 juni 2014 om 22:08
 
 Willen toch even reageren op het minderwaardigheidscomplex.
 Wij hebben 'n caravannetje van 4 meter en je hebt geen idee waar de Engelsen mee komen. Dan valt jullie camper best wel mee. Veel plezier nog en de groeten uit de Loirestreek.

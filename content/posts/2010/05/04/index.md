@@ -30,7 +30,7 @@ Op de dag van vertrek hebben we ‘s morgens nog een rondvlucht gemaakt in zo’
 
 ## 2 opmerkingen
 
-### Anoniem3 mei 2010 om 13:58
+### Anoniem 3 mei 2010 om 13:58
 
 ~R.
 
@@ -43,7 +43,7 @@ Dag.
 
 Ronald
 
-### Anoniem3 mei 2010 om 14:01
+### Anoniem 3 mei 2010 om 14:01
 
 Wel een klein campertje hebben jullie daar zeg.
 Passen jullie ego's daar wel in?

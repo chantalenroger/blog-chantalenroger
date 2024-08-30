@@ -26,6 +26,6 @@ Op aanraden van Pete zijn we gaan eten bij North Oak Brasserie in Hood River: zo
 
 ## 1 opmerking
 
-### Gerard4 november 2012 om 12:42
+### Gerard 4 november 2012 om 12:42
 
 Het is toch toch wel heel wat moois wat ik nu aan het inhalen ben. Maar jullie weten ik ben druk druk druk..... Het is er toch al winters daar en jullie hebben een leuk optrekje. Ook dit is weer een mooie omgeving. Veel plezier nog.

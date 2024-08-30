@@ -20,6 +20,6 @@ Bij terugkomst was het etenstijd dus zijn we op zoek gegaan naar het Italiaanse 
 
 ## 1 opmerking
 
-### Anoniem9 juli 2011 om 10:50
+### Anoniem 9 juli 2011 om 10:50
 
 Toffe fietstocht. Het is altijd hetzelfde met die Papa di Tutti's. Zijn jullie niet heel erg vroeg met het plaatsen van jullie 9/7 blog?

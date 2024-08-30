@@ -35,6 +35,6 @@ In 2003 heeft een verdwaalde jager een vuurtje gestookt om zodoende gevonden te 
 
 ## 1 opmerking
 
-### Gerard18 mei 2016 om 00:52
+### Gerard 18 mei 2016 om 00:52
 
 Zo vakantiegangers, het is toch wel heel bijzonder wat jullie zien en meemaken. Erg leuk om te volgen op de blog. En Roger, de bosmier bij Sofie heeft het, neem ik aan, toch niet overleefd.

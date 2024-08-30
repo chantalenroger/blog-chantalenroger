@@ -29,6 +29,6 @@ Na al dit spektakel zijn we via de SR-14 (wow!) en de SR-89 naar Bryce Canyon ge
 
 ## 1 opmerking
 
-### 2-op-reis24 mei 2015 om 10:05
+### 2-op-reis 24 mei 2015 om 10:05
 
 Wat een gave foto's! Echte hike schoenen voor een dappere stapper. A bientot, maar niet al te vite.

@@ -36,6 +36,6 @@ Na Echo Canyon gaat het in nog eens 2 mijl (nog stijler en in de zon!) naar Obse
 
 ## 1 opmerking
 
-### Gerard21 juni 2013 om 16:05
+### Gerard 21 juni 2013 om 16:05
 
 het zijn toch allemaal schitterende uitzichten

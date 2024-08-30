@@ -42,7 +42,7 @@ Bij thuiskomst zijn we natuurlijk weer direct in de hot-tub gesprongen met een l
 
 ## 1 opmerking
 
-### Anoniem31 oktober 2012 om 15:01
+### Anoniem 31 oktober 2012 om 15:01
 
 Hallo,
 Ik zit met mama jullie verhalen te lezen. We krijgen 't wel een beetje koud bij ' t zien van zoveel sneeuw. Gelukkig konden jullie lekker opwarmen in de hot tub. Groetjes from Down Under (H&J)

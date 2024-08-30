@@ -32,10 +32,10 @@ Hetgeen ons op de been hield tijdens deze barre winterse expeditie was de wetens
 
 ## 2 opmerkingen
 
-### David29 oktober 2012 om 07:35
+### David 29 oktober 2012 om 07:35
 
 Beetje groot die hot tube, niet? Jullie hadden net zo goed de film ploeg er ook in kunnen stoppen ;-)
 
-### sergio29 oktober 2012 om 22:43
+### sergio 29 oktober 2012 om 22:43
 
 wat een vervelende plek, wahhh!!! veel plezier

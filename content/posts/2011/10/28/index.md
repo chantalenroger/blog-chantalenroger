@@ -32,11 +32,11 @@ En nu zijn we aangekomen in Bryce Canyon waar we twee nachten gaan blijven. Het 
 
 ## 2 opmerkingen
 
-### Anoniem28 oktober 2011 om 06:36
+### Anoniem 28 oktober 2011 om 06:36
 
 Hallo mede USA gangers. Mooie ritten en wandelingen gemaakt zien we. Wij zijn inmiddels nabij Petrified Forest. Zijn vandaag vertrokken uit Grand Canyon en hebben ook nog Wupatki NM en Walnut Canyon NM bezocht. By-the-way: Red Rock is wel ok, voor paar leuke wandelingen. See ya in Oeteldonk.
 
-### Anoniem28 oktober 2011 om 17:11
+### Anoniem 28 oktober 2011 om 17:11
 
 Hallo jongelui,prachtige foto's van de grotten.
 

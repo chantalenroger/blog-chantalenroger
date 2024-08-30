@@ -28,38 +28,38 @@ Na de lunch nog wat gezwommen in het zwembad van het hotel, en nu zitten we op h
 
 ## 6 opmerkingen
 
-### Nick Heinemans25 april 2010 om 13:04
+### Nick Heinemans 25 april 2010 om 13:04
 
 Alvast een goede reis en een hele fijne vakantie!
 
 Groetjes van Nick, Marjolein en Sanne
 
-### Mac Sprout25 april 2010 om 22:56
+### Mac Sprout 25 april 2010 om 22:56
 
 "Down under" zal het wel wat koeler aanvoelen (niet zo vochtig). En dan zelf weer vochtig maken met Fosters/XXXX/Powers..... Veel plezier!
 
 Ugh en How!
 Martin
 
-### David26 april 2010 om 11:06
+### David 26 april 2010 om 11:06
 
 Zat gisteren weer "smakelijk" te kijken naar het programma Border Security (australische douane). Neem eens wat van die vruchten mee naar Australië, komen jullie op TV! ;-)
 
-### fam. van Kuil (junior)27 april 2010 om 22:22
+### fam. van Kuil (junior) 27 april 2010 om 22:22
 
 Hele fijne vakantie jullie twee, wij kijken uit naar jullie verhalen!!!
 
 Veel liefs Maurice en Dayenne
 knuffels van de meisjes!
 
-### MacSprout28 april 2010 om 13:45
+### MacSprout 28 april 2010 om 13:45
 
 En? De barbie al aan de praat gekregen met een flinke Skippy-Steak erop..... mmmmhhh..
 Trouwens mocht je een croq tegenkomen deze zijn niet zomaar aan te trekken ... eerst fileren en de huid te drogen leggen... ;-0
 Ugh en How!
 Martin
 
-### Gerard29 april 2010 om 00:00
+### Gerard 29 april 2010 om 00:00
 
 Druk druk druk.....Heb vandaag pas voor het eerst kunnen kijken. Zo te zien hebben jullie het goed naar de zin. Veel plezier en pas op voor de slang....
 

@@ -43,7 +43,7 @@ Zondagochtend zijn we weer naar huis gereden.
 
 ## 1 opmerking
 
-### Gerard13 september 2016 om 11:34
+### Gerard 13 september 2016 om 11:34
 
 Die kleine Sofie heeft samen met mams en paps toch weer veel leuke dingen gedaan en veel beleefd.
 De blog blijft een mooi reisverslag.

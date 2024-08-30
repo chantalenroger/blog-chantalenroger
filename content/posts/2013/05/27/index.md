@@ -22,10 +22,10 @@ Het wordt natuurlijk een bijzondere trip, zo voor de laatste keer met ons tweetj
 
 ## 2 opmerkingen
 
-### Anoniem28 mei 2013 om 22:23
+### Anoniem 28 mei 2013 om 22:23
 
 Klein spelvaudje vermoed ik. Bedoelen jullie niet naar de (of gaan CamperVannen met zijn drieeën? Heel veel plezier. De CamperFannen uit W&A.
 
-### fam. van Kuil (junior)31 mei 2013 om 22:21
+### fam. van Kuil (junior) 31 mei 2013 om 22:21
 
 Geniet er maar lekker van!

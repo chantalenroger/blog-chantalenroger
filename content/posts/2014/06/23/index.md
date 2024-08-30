@@ -27,6 +27,6 @@ Als je ervan houdt is het ongetwijfeld een mooi park, maar het was niet helemaal
 
 ## 1 opmerking
 
-### Gerard24 juni 2014 om 02:02
+### Gerard 24 juni 2014 om 02:02
 
 He vakantiegangers, jullie volgen via de blog is erg leuk en ik geniet ook van de leuke dingen die jullie meemaken. Ik zie ook dat Sofie een leuke dimensie geeft aan jullie vakantieactiviteiten. Veel plezier nog samen.

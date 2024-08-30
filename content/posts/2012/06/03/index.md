@@ -38,7 +38,7 @@ Nu staan we op de mooie Buck Creek Campground in Marion, North Carolina aan een 
 
 ## 1 opmerking
 
-### Gerard6 juni 2012 om 00:38
+### Gerard 6 juni 2012 om 00:38
 
 Zo zie je maar weer je ziet veel moois je maakt veel mee, maar noch je stoelen noch je dollars zijn veilig!!!!! De vier foto's hierboven zijn in de goede hiërarchie geplaatst....
 Veel plezier

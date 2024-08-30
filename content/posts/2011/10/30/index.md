@@ -36,7 +36,7 @@ Een klein foutje en je belandt een paar honderd meter lager met je kadaver, dus 
 
 ## 1 opmerking
 
-### Sergio31 oktober 2011 om 13:57
+### Sergio 31 oktober 2011 om 13:57
 
 Hebben jullie de hand van "127 hours" gevonden?
 veel plezier nog!!!!!

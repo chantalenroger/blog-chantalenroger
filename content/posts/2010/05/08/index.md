@@ -22,11 +22,11 @@ We vertrekken zometeen richting Uluru, beter bekend als Ayer’s Rock. Dus richt
 
 ## 4 opmerkingen
 
-### David6 mei 2010 om 06:40
+### David 6 mei 2010 om 06:40
 
 Tja, is net zo iets als een lampje in een Lexus ... voor je het weet rij je opeens een Renault :-P
 
-### Anoniem6 mei 2010 om 10:08
+### Anoniem 6 mei 2010 om 10:08
 
 Lamjes in Lexi gaan nooit stuk, want die hoeven niet te branden.
 Waarschuwingslampjes in Renaults daarentegen branden regelmatig door.
@@ -37,7 +37,7 @@ Wel jammer dat er weer zeik is met jullie wielen, zou het liggen aan het feit da
 Grt,
 Ronald
 
-### fam. van Kuil (junior)7 mei 2010 om 22:14
+### fam. van Kuil (junior) 7 mei 2010 om 22:14
 
 Dag Hikers! Even bij moeten lezen sinds maandag! Tjonge jonge jullie treffen het wel met jullie mobiele huisjes! Maar goed dat er weer een ander en zelfs luxer huisje voor jullie klaar staat, hahah. Ik zie en lees dat jullie je daar prima vermaken.... Veel plezier en geniet!!!
 
@@ -45,7 +45,7 @@ Wij hebben ook een schitterend midweekje doorgebracht. Kinderen hadden het goed,
 
 Liefs van ons!
 
-### Gerard8 mei 2010 om 09:58
+### Gerard 8 mei 2010 om 09:58
 
 Hallo Chantal en Roger,
 

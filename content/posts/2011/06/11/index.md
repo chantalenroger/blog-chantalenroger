@@ -26,7 +26,7 @@ Behoorlijk beklemmend allemaal daar, en zeer indrukwekkend. Je zal d'r maar zitt
 
 ## 3 opmerkingen
 
-### Gerard13 juni 2011 om 00:38
+### Gerard 13 juni 2011 om 00:38
 
 Hallo Vakantiegangers,
 
@@ -35,14 +35,14 @@ Trouwens mijn eerste reactie op de blog hangt nog ergens in "toestemmingsland"
 G & G dwz groetjes en geniet ze
 Mams en Paps
 
-### Anoniem13 juni 2011 om 09:27
+### Anoniem 13 juni 2011 om 09:27
 
 Hoi Roger en Chantal, mooi dat jullie er zijn. Ik hoop dat het zonnetje schijnt, want het kan daar lekker mistig zijn. Oh ja, de zwerver is geen pleonasme, want hij kan natuurlijk ook naar zweet stinken is niet altijd drank. :-)
 En nu denk ik de RV ophalen? en naar Sausalito?
 
 Groeten, Ben
 
-### fam. van Kuil (junior)13 juni 2011 om 17:55
+### fam. van Kuil (junior) 13 juni 2011 om 17:55
 
 Leuk welkom van die aardige meneer van de straat!
 Wat grappig dat die cookies dus helemaal niet uit china komen, altijd gedacht! Ik heb het filmpje gezien en het klinkt inderdaad heel koud en kill in de gevangenis! Het zal een aparte maar indrukwekkende ervaring geweest zijn! Ben benieuwd of jullie nog gaan fietsen! haha

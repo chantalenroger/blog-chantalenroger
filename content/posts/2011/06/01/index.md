@@ -16,19 +16,19 @@ Pfff, nog twee dagen werken, en dan vertrekken we richting San Francisco…
 
 ## 3 opmerkingen
 
-### Anoniem10 juni 2011 om 08:13
+### Anoniem 10 juni 2011 om 08:13
 
 Heeeeel veeeeel plezier met Koetjeboe!
 
 Liefs Maurice, Dayenne en de kids!
 
-### Anoniem10 juni 2011 om 15:00
+### Anoniem 10 juni 2011 om 15:00
 
 Heel veel plezier. Iets zegt me dat jullie het wel verdiend zullen hebben. Anyhow have fun. I hope your I-95's are accepted.
 
 Barry
 
-### Gerard12 juni 2011 om 11:22
+### Gerard 12 juni 2011 om 11:22
 
 Hallo Chantal en Roger.
 

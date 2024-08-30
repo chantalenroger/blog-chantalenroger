@@ -49,6 +49,6 @@ En toen was het tijd om te vertrekken naar Los Angeles, waar we nog overnachten 
 
 ## 1 opmerking
 
-### Gerard14 juni 2016 om 01:18
+### Gerard 14 juni 2016 om 01:18
 
 Ons bij de handje is toch maar mooi in Vegas geweest en ze loopt als een "prominentje" met haar handtas door de lobby van het hotel. Grappig te zien hoe ze zich vermaakt. Trouwens mama en papa ook....

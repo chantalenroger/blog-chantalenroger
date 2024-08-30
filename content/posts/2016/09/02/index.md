@@ -41,6 +41,6 @@ Helemaal aan het einde komt dan eindelijk de eindbaas Mickey en z'n lover Mini.
 
 ## 1 opmerking
 
-### Gerard7 september 2016 om 10:10
+### Gerard 7 september 2016 om 10:10
 
 Dit is wel een heel mooi begin van jullie vakantie. En Sofie past met haar jurk erg goed in het Disney park.

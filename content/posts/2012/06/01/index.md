@@ -26,10 +26,10 @@ Inmiddels is het droog en waait het niet meer, we vermoeden dat het een rustige 
 
 ## 2 opmerkingen
 
-### Gerard2 juni 2012 om 13:16
+### Gerard 2 juni 2012 om 13:16
 
 Het ziet er allemaal geweldig uit en jullie hebben zo te zien een goede camper. Verder hoop ik dat de hurricane met een grote boog om jullie heen waait. Veel plezier samen.
 
-### Ronald4 juni 2012 om 08:09
+### Ronald 4 juni 2012 om 08:09
 
 Ducksauce!!

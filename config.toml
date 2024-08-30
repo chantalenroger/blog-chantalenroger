@@ -13,7 +13,8 @@ timeout = "30000"
   avatar = "images/avatar.jpg"
 
 [Permalinks]
-  posts = "/:year/:month/:day/:filename"
+  #posts = "/:year/:month/:day/:filename"
+  posts = "/:year/:month/:filename"
 
 [Params]
   subtitle = "" # Deprecated in favor of .Site.Params.logo.subtitle

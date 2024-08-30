@@ -45,6 +45,6 @@ Na deze ochtendgymnastiek zijn we weer in de Roadbear gestapt om richting Monume
 
 ## 1 opmerking
 
-### Anoniem6 juni 2015 om 09:27
+### Anoniem 6 juni 2015 om 09:27
 
 Gaaf die Windows applicaties. Mooie, leuke verhalen verder. En nog indrukwekkendere èn jaloersmakende foto's. We zien uit naar jullie avonturen op zoek naar Apple - rock. iRock NP is ook erg mooi! Veel plezier.

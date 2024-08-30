@@ -24,7 +24,7 @@ We zullen proberen onze avonturen hier zo vaak mogelijk bij te houden.
 
 ## 1 opmerking
 
-### MacSprout24 mei 2012 om 12:09
+### MacSprout 24 mei 2012 om 12:09
 
 Roger net gemist in Zeist, dus zo maar...
 

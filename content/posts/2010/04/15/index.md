@@ -30,7 +30,7 @@ Alvast veel plezier in down under! En doe de flying doctors de groeten van mij :
 Gr,
 David
 
-### Anoniem23 april 2010 om 13:23
+### Anoniem 23 april 2010 om 13:23
 
 Nog even over jullie vorige vakantie: als jullie de volgende keer in de USA met de metro gaan rondtrekken hebben jullie ook geen last van een kapotte koelkast of defecte remmen.....
 
@@ -38,11 +38,11 @@ Grt,
 
 Ronald
 
-### Chantal en Roger25 april 2010 om 12:08
+### Chantal en Roger 25 april 2010 om 12:08
 
 We kunnen ook gewoon een Lexus huren :-)
 
-### Anoniem27 april 2010 om 08:16
+### Anoniem 27 april 2010 om 08:16
 
 of kopen, dat is goedkoper.....
 

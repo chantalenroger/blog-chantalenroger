@@ -35,17 +35,17 @@ Nu kunnen we natuurlijk flauw gaan doen over Vicky (of Amerikanen in het algemee
 
 ## 3 opmerkingen
 
-### David8 juni 2013 om 15:56
+### David 8 juni 2013 om 15:56
 
 Even testen; noemen jullie eens uit je hoofd alle staten op? :-P
 
 Leuke foto's!
 
-### Gerard9 juni 2013 om 12:12
+### Gerard 9 juni 2013 om 12:12
 
 Mooie plaatjes. Jullie hebben het zo te zien en te lezen erg naar je zin. Doe Vicky maar de groeten from holland......
 Geniet maar lekker verder dan kunnen ook wij meegenieten
 
-### Sergio12 juni 2013 om 15:27
+### Sergio 12 juni 2013 om 15:27
 
 Nee, mensen zoals Vicky worden hier TV VIP's!!!

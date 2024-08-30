@@ -32,7 +32,7 @@ We zijn inmiddels aangekomen in de sherry-stad Jerez de la Frontera. Gisteravond
 
 ## 1 opmerking
 
-### Sergio15 februari 2012 om 17:45
+### Sergio 15 februari 2012 om 17:45
 
 Probeer de lokale drank Jerez...
 

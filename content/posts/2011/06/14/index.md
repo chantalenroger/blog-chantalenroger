@@ -28,13 +28,13 @@ Morgen maar eens kijken wat hier allemaal te beleven valt.
 
 ## 2 opmerkingen
 
-### Sergio16 juni 2011 om 09:14
+### Sergio 16 juni 2011 om 09:14
 
 Wat een groot ding!
 Veel plezier verder!
 Sergio
 
-### fam. van Kuil (junior)22 juni 2011 om 14:12
+### fam. van Kuil (junior) 22 juni 2011 om 14:12
 
 Wat een gave mobile home! De kinderen vinden het fantastisch wat koetjeboe te vertellen heeft..
 Laat de vakantie maar lekker door je heen waaien zodat je heerlijk kan geniet van al het moois, wij lezen jullie avonturen wel!

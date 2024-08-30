@@ -27,7 +27,7 @@ De volgende dag hebben we een beetje rondgereden naar de noordelijke helft van h
 
 ## 1 opmerking
 
-### Gerard28 juni 2014 om 10:07
+### Gerard 28 juni 2014 om 10:07
 
 Hallo Vakantiegangers
 Het blijven mooie plaatjes en plaatsjes. En Sofie, ben je aan het afkijken hoe je een zwaar hoofd kunt ondersteunen........

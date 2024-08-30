@@ -32,6 +32,6 @@ Zondagochtend zijn we vroeg naar de Palm Springs Tramway gegaan. Met deze "skili
 
 ## 1 opmerking
 
-### Gerard3 juni 2013 om 09:39
+### Gerard 3 juni 2013 om 09:39
 
 Het genieten is begonnen maar jullie hebben er wel erg warm weer bij. Veel plezier....

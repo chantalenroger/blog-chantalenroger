@@ -26,13 +26,13 @@ We zijn nu eindelijk aangekomen in Redwood National Park, en zijn dus op het noo
 
 ## 3 opmerkingen
 
-### Anoniem19 juni 2011 om 09:54
+### Anoniem 19 juni 2011 om 09:54
 
 Hoi Roger en Chantal, wat een joekel van een camper zeg. Past goed tussen die grote bomen. Haha, ik hoop niet voor jullie dat de beren ook van die giants zijn. Mooie streek, zijn we toen ook geweest maar dan was dit ons zuidelijkste punt en gingen we weer omhoog naar Oregon.
 
 Groeten, Ben en Mascha
 
-### Gerard19 juni 2011 om 12:26
+### Gerard 19 juni 2011 om 12:26
 
 Hallo Chantal en Roger,
 
@@ -42,7 +42,7 @@ Tussen de redwood en de sequoia zullen jullie je wel erg klein voelen. Toch blij
 g&g
 Mams en Paps
 
-### fam. van Kuil (junior)22 juni 2011 om 14:16
+### fam. van Kuil (junior) 22 juni 2011 om 14:16
 
 Wat een mooi bos! Schitterend... Jullie zien er wel mini uit met jullie toch wel grote luxe mobiele huis!
 

@@ -26,7 +26,7 @@ Zie hieronder (NSFW) het bewijsmateriaal van een zeer blije Roger...
 
 ## 1 opmerking
 
-### Gerard25 juni 2011 om 11:47
+### Gerard 25 juni 2011 om 11:47
 
 Hallo Vakantiegangers,
 Gelukkig Roger dat je toch een overheerlijk biertje heb mogen aantreffen. Wat zou een vakantie zijn zonder..... Dat jij je, met je bootje, kostelijk hebt vermaakt is je in het filmpje aan te zien. Big American been boating!!! Chantal zocht verkoeling in het water. Een zweefduik vanaf een varende boot zal wel spectaculair zijn geweest.

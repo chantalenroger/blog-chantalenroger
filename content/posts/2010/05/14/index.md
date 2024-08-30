@@ -26,7 +26,7 @@ Vandaag rijden we zoals gezegd verder naar de oostkust, een ritje van slechts 80
 
 ## 3 opmerkingen
 
-### Gerard15 mei 2010 om 10:57
+### Gerard 15 mei 2010 om 10:57
 
 Hallo You2,
 
@@ -36,7 +36,7 @@ Groetjes
 
 Helen & Gerard
 
-### Anoniem17 mei 2010 om 08:18
+### Anoniem 17 mei 2010 om 08:18
 
 Doen wij toch iets verkeerd, de computer-airco-dvdspeler zijn bekend maar het bijbehorende salaris..... misschien ook maar foto's gaan verkopen. :-)
 
@@ -45,7 +45,7 @@ Voordeel van die rechte wegen is dat je naast de cruise-control ook het stuurwie
 Ugh en How!
 Mac
 
-### Anoniem18 mei 2010 om 13:21
+### Anoniem 18 mei 2010 om 13:21
 
 Een ander voordeel van zo'n lange, rechte en vooral saaie weg is dat het een geruisloze overgang naar Nederland is......
 

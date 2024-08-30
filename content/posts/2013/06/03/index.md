@@ -28,12 +28,12 @@ De rest van de middag hebben we, al dan niet slapend, doorgebracht op de camping
 
 ## 2 opmerkingen
 
-### Sergio5 juni 2013 om 12:31
+### Sergio 5 juni 2013 om 12:31
 
 Ha mensen, het ziet zo heet(warm) uit!!!
 bedankt voor je bericht!!! en gewoon blijven genieten!!!!
 
-### Anoniem6 juni 2013 om 21:33
+### Anoniem 6 juni 2013 om 21:33
 
 Eindelijk gelukt om op internet te komen. Zitten ver van de receptie, daardoor slechte ontvangst. Wij hebben het naar ons zin in Winterswijk, gaan zondag verder naar Ootmarsum in Twente. Zaterdag gaan we even naar Mascha en Ben, is in de buurt. Wensen jullie nog veel plezier.
 Gr. Pa en mam.

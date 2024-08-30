@@ -19,11 +19,11 @@ Paspoorten, tickets en creditcards liggen klaar. De koffers zijn al ingepakt, hu
 
 ## 2 opmerkingen
 
-### Anoniem14 juni 2014 om 22:55
+### Anoniem 14 juni 2014 om 22:55
 
 We proberen jullie uit Frankrijk te volgen. Hebben niet overal internet en vaak ook heel erg slecht. van Sofie hebben we al vernomen dat het heel leuk was in het vliegtuig. Benieuwd hoe het verder met haar gaat.
 Groeten en veel plezier
 
-### Anoniem15 juni 2014 om 09:52
+### Anoniem 15 juni 2014 om 09:52
 
 Ha Globetrotters, wij hopen dat jullie inmiddels goed 'gepakt en gezakt' zijn voor de komende weken. Vast wel! Wij zijn in Angels Camp en gaan morgen de volgende Sierra Nevada pass rijden; de 108. Wellicht tot snel !! Groeten B&H&?

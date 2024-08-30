@@ -18,17 +18,17 @@ Zoals gezegd, vrijdag vliegen we naar Singapore waar we dan nog de hele zaterdag
 
 ## 5 opmerkingen
 
-### Anoniem19 mei 2010 om 13:13
+### Anoniem 19 mei 2010 om 13:13
 
 Hoi!
 Goede reis terug!!!
 Sergio
 
-### David19 mei 2010 om 17:38
+### David 19 mei 2010 om 17:38
 
 Rust maar goed uit, want ik verwacht je maandag stipt 06:00!
 
-### Gerard19 mei 2010 om 23:19
+### Gerard 19 mei 2010 om 23:19
 
 Hallo Chantal en Roger,
 
@@ -38,7 +38,7 @@ Groetjes
 
 Gerard
 
-### Anoniem20 mei 2010 om 15:40
+### Anoniem 20 mei 2010 om 15:40
 
 Hoop niet dat het Apollo 13 = ;-)
 
@@ -47,7 +47,7 @@ Goede trip huiswaarts, en Rolex-en in Singapore hebben een korte levensduur (tip
 CU
 Mac
 
-### Anoniem21 mei 2010 om 18:42
+### Anoniem 21 mei 2010 om 18:42
 
 Hallo,
 
