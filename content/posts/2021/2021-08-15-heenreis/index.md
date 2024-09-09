@@ -8,7 +8,7 @@ tags:
 - Duitsland
 ---
 
-De corona regels in Duitsland zijn net voor ons vertrek gewijzigd: Sofie hoeft niet meer te testen in Nederland en10 dagen in Duitsland in quarantaine (die na vijf dagen na een negatieve test opgeheven zou kunnen worden). Aanvankelijk zouden wij gedurende de quarantaine periode werken vanuit het hotel, maar nu de corona regels minder streng zijn, hebben wij onze vakantie ook maar wat vervroegd: ik moet alleen nog de maandagochtend werken, en Chantal de maandag en dinsdag. 
+De corona regels in Duitsland zijn net voor ons vertrek gewijzigd: Sofie hoeft niet meer te testen in Nederland en10 dagen in Duitsland in quarantaine (die na vijf dagen na een negatieve test opgeheven zou kunnen worden). Aanvankelijk zouden wij gedurende de quarantaine periode werken vanuit het hotel, maar nu de corona regels minder streng zijn, hebben wij onze vakantie ook maar wat vervroegd: ik moet alleen nog de maandagochtend werken, en Chantal de maandag en dinsdag.
 
 De heenreis gisteren ging een stuk voorspoediger dan we hadden ingeschat. Het bleek helemaal niet zo druk te zijn richting het zuiden, dus we waren wat te vroeg in Schluchsee. We hadden zelfs tijd om een mooie weg binnendoor te rijden, en konden zo de gewoonlijke drukte rond Rust en Freiburg mooi omzeilen. Uiteindelijk zaten we al om 2 uur aan de apfelschorle in het zonnetje op het terras van het hotel. We hadden vorige week al gereserveerd in ons lievelingsrestaurant Seehof ("Guten Abend Herr Baat'n"), dus daar schoven we aan nadat we de spullen in de kamer 11 hadden uitgepakt.
 
