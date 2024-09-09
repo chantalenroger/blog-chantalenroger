@@ -4,8 +4,8 @@ date: 2021-08-15T16:14:25+02:00
 publishDate: 2022-04-01T16:14:25+02:00
 author: Chantal en Roger
 tags:
-- Travel
-- Schluchsee 2021
+- 2021
+- Duitsland
 ---
 
 De corona regels in Duitsland zijn net voor ons vertrek gewijzigd: Sofie hoeft niet meer te testen in Nederland en10 dagen in Duitsland in quarantaine (die na vijf dagen na een negatieve test opgeheven zou kunnen worden). Aanvankelijk zouden wij gedurende de quarantaine periode werken vanuit het hotel, maar nu de corona regels minder streng zijn, hebben wij onze vakantie ook maar wat vervroegd: ik moet alleen nog de maandagochtend werken, en Chantal de maandag en dinsdag. 
