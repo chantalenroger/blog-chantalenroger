@@ -4,7 +4,7 @@ date: 2012-06-05T16:14:25+02:00
 publishDate: 2022-04-01T16:14:25+02:00
 author: Chantal en Roger
 tags:
-- USA
+- Verenigde Staten
 - 2012
 
 comments: false
