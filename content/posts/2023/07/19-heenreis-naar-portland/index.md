@@ -21,4 +21,4 @@ Na het landen, pikken we de koffers op en gaan naar Herz om onze auto voor de ko
 
 Het hotel Embassy Suites is maar een paar minuten rijden van het vliegveld. Het is een enorm hotel, met een zwembad, dus daar gaan de dames als eerste naar toe. 's Avonds zijn we helemaal uitgeblust, en eten dus maar gewoon in het restaurant van het hotel.
 
-{{< imgproc "images/IMG_3165.jpg" Resize "1024x" >}}
+![Portland](./images/IMG_3165.jpg)

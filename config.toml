@@ -14,7 +14,8 @@ timeout = "30000"
 
 [Permalinks]
   #posts = "/:year/:month/:day/:filename"
-  posts = "/:year/:month/:filename"
+  #posts = "/:year/:month/:filename"
+  posts = "/:year/:month/:day"
 
 [Params]
   subtitle = "" # Deprecated in favor of .Site.Params.logo.subtitle

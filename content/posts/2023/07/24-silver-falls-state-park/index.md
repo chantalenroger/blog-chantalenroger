@@ -15,18 +15,18 @@ Het is een paar minuten rijden vanaf de camping naar de gigantische parkeerplaat
 
 Wij lopen de Winter Falls Loop, een rondje van 11 kilometer. In dit rondje zie je een stuk of acht verschillende watervallen. De ene spectaculairder dan de ander, en bij sommige kun je achter de waterval door lopen.
 
-{{< imgproc "images/IMG_3309.jpg" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_3309.jpg)
 
-{{< imgproc "images/IMG_6775.JPG" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_6775.JPG)
 
-{{< imgproc "images/IMG_6784.JPG" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_6784.JPG)
 
 Onderweg krijgen we nog een paar druppels regen op ons dak. De wandeling is verder niet al te zwaar, dus we kunnen genieten van het mooie landschap en de watervallen.
 
-{{< imgproc "images/IMG_6811.JPG" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_6811.JPG)
 
 Aan het einde van de wandeling eten we nog een snack in de lodge, en maakt Sofie haar Junior Ranger boekje af. Daarna is het tijd voor een (erg) frisse duik in de Silver Creek.
 
-{{< imgproc "images/IMG_3317.jpg" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_3317.jpg)
 
 Terug op de camping gaan we snel eten, en kan Sofie met haar Junior Ranger boekje de welverdiende badge ophalen bij de camp host.

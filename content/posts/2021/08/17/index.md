@@ -12,12 +12,12 @@ Chantal moet vandaag nog werken, dus zijn Sofie en ik na het ontbijt vertrokken 
 
 Vorig jaar waren we al in dit park geweest, en het ondanks de beperkte omvang, is het toch best een leuke bestemming. Beetje diertjes kijken, beetje rodelen, beetje met een kabelbaan de berg op. Het is prachtig weer, niet al te warm, maar wel lekker zonnig.
 
-{{< imgproc "images/IMG_9511.jpg" Fit "1024x768 r0" >}}
+![Steinwasen Park](./images/IMG_9511.jpg)
 
-{{< imgproc "images/IMG_9507.jpg" Fit "1024x768 r0" >}}
+![Steinwasen Park](./images/IMG_9507.jpg)
 
-{{< imgproc "images/IMG_9505.jpg" Fit "1024x768 r0" >}}
+![Steinwasen Park](./images/IMG_9505.jpg)
 
-{{< imgproc "images/IMG_9500.JPG" Fit "1024x768 r180" >}}
+![Steinwasen Park](./images/IMG_9500.JPG)
 
 Een ander ding wat ons hier opvalt, is dat werkelijk niemand rekening meer houdt met de anderhalve meter afstand.

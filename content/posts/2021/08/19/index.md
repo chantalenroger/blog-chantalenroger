@@ -14,14 +14,14 @@ Direct na de ingang zijn we als eerste in Voletarium geweest. Je zit in een soor
 
 We zijn nog in de Alpenexpress (achtbaan), botsauto's, 3 keer in Arthur (fantastische achtbaan waar je onder de rails hangt), Fjord Rafting (met een vlot over een wilde rivier, Sofie was kletsnat), draaiende koffie kopjes, Pirates of Batavia (erg mooi ondergrondse boottocht met erg lekker naast de uitgang).
 
-{{< imgproc "images/Arthur.jpg" Fit "1024x768 r0" >}}
+![Europa Park](./images/Arthur.jpg)
 
-{{< imgproc "images/Batavia.jpg" Fit "1024x768 r0" >}}
+![Europa Park](./images/Batavia.jpg)
 
-{{< imgproc "images/IMG_0973.JPG" Fit "1024x768 r270" >}}
+![Europa Park](./images/IMG_0973.JPG)
 
 Het park is enorm groot, en heeft ongelooflijk veel attracties. Dit heeft als voordeel dat de wachttijden bij meeste attracties niet super lang zijn.
 
 De zweefmolen was een van Sofie's favorieten, ze wilde (na het ritje samen met mij) er per se alleen er in.
 
-{{< imgproc "images/IMG_9518.jpg" Fit "1024x768 r0" >}}
+![Europa Park](./images/IMG_9518.jpg)

@@ -16,7 +16,7 @@ Van de 27 glijbanen, is een behoorlijk aantal geschikt voor Sofie. Af en toe moe
 
 ... maar zeker ook het gebeuren buiten spreekt tot de verbeelding.
 
-{{< imgproc "images/IMG_9794.jpg" Resize "1024x r0" >}}
+![Rulantica](./images/IMG_9794.jpg)
 
 {{< youtube id="FukLRdHSgV8" autoplay="true" title="Chantal en Sofie in Rulantica">}}
 

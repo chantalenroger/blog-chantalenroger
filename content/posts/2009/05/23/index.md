@@ -13,7 +13,6 @@ comments: false
 Aan het einde van de middag aangekomen in Death Valley. De camping heeft geen hookups, en dat is geen feest met 42 graden! We mogen de generator maar tot 7 uur gebruiken. Ik denk dat het om 23 uur nog steeds boven de 30 graden was, dus we hebben geslapen met alle ramen open. 's Morgens om 5 zijn we maar opgestaan, de temperatuur in de camper was niet meer te harden! Maar goed, we zijn gaan rondrijden en wat mooie dingen gezien.
 
 ![Zabriskie Point](./images/20090523_IMG_7013.JPG)
-<!-- {{< imgproc "images/20090523_IMG_7013.JPG" Resize "1024x r0">}} -->
 
 Morgen moeten we Cruise America bellen, we hebben een probleem met de koelkast. Vanmorgen al aan de telefoon gehangen want 't ding deed het helemaal niet. Na een of andere woeste combinatie van toetsen indrukken hadden we de indruk dat 'ie 't deed. Zo'n koelkast heeft 6 tot 8 uur nodig om goed te kunnen koelen, maar aan 't einde van de avond had ik nog steeds geen koud bier, en das natuurlijk niet de bedoeling. Morgenvroeg moeten we even terugbellen, dan komt er waarschijnlijk een monteur langs. Ben benieuwd...
 

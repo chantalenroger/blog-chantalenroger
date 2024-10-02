@@ -11,25 +11,25 @@ comments: false
 
 June Lake ligt iets ten oosten van Yosemite National Park. In drie kwartiertjes rijden we naar de Tuolumne Meadows. We parkeren de voiture bij Dog Lake Parking. We wandelen via een mooi paadje naar de Lembert Dome.
 
-{{< imgproc "images/IMG_7624.JPG" Resize "1024x r270" >}}
+![Yosemite National Park](./images/IMG_7624.JPG)
 
 Het eerste stuk gaat door het bos...
 
-{{< imgproc "images/IMG_7627.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7627.JPG)
 
 ... maar daarna moeten we met halsbrekende toeren over de steile rotsen naar boven klauteren.
 
-{{< imgproc "images/IMG_7631.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7631.JPG)
 
-{{< imgproc "images/IMG_7638.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7638.JPG)
 
-{{< imgproc "images/IMG_3816.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3816.jpg)
 
-{{< imgproc "images/IMG_3824.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3824.jpg)
 
 De uitzichten vanaf de top zijn fantastisch!
 
-{{< imgproc "images/IMG_7641.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7641.JPG)
 
 Het begint wat te betrekken, en we willen niet over natte rotsen naar beneden, dus we pakken onze spullen en wandelen terug naar de auto. De laatste 400 meter lopen we in de stromende regen, en precies bij de auto aangekomen stopt het weer.
 
@@ -39,16 +39,16 @@ De rest van de middag is het gelukkig weer zonnig, en dus maken we een wandeling
 
 Bij de rivier rusten we even lekker uit.
 
-{{< imgproc "images/IMG_7699.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7699.JPG)
 
 Lembert Dome is die grijze berg achter Chantal.
 
-{{< imgproc "images/IMG_3845.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3845.jpg)
 
 Sofie wil nog even chillen bij June Lake, dus we rijden weer terug naar de camping.
 
-{{< imgproc "images/IMG_3862.jpg" Resize "1024x r0" >}}
+![June Lake](./images/IMG_3862.jpg)
 
-{{< imgproc "images/IMG_7729.JPG" Resize "1024x r0" >}}
+![June Lake](./images/IMG_7729.JPG)
 
 's Avonds gaan we bij het meer sterren kijken. Het is ongelooflijk hoeveel sterren je hier kunt zien.

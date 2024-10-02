@@ -10,8 +10,8 @@ tags:
 
 Vandaag hebben we een beetje kalm aan gedaan. 's Morgens hebben we een stop-motion filmpje gemaakt van een legosetje. Sofie heeft het script geschreven, en geholpen met het verplaatsen van de figuurtjes.
 
-{{< imgproc "images/IMG_1201.JPG" Resize "1024x r0" >}}
+![Schluchsee](./images/IMG_1201.JPG)
 
 {{< youtube id="zPYSRhIndKo" autoplay="true" title="Stop motion lego">}}
 
-{{< imgproc "images/IMG_1203.JPG" Resize "1024x r0" >}}
+![Schluchsee](./images/IMG_1203.JPG)

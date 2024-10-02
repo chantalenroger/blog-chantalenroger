@@ -11,20 +11,20 @@ comments: false
 
 Vanmorgen doen we eerst even boodschappen voor de komende dagen. Daarna rijden we naar de kust. Het is een prachtige weg. We lunchen op het strand van Roads End Recreation Site. De eerste natte voetjes zijn binnen :-)
 
-{{< imgproc "images/IMG_3237.jpg" Resize "1024x r0" >}}
+![Roads End Recreation Site](./images/IMG_3237.jpg)
 
-{{< imgproc "images/IMG_6608.JPG" Resize "1024x r0" >}}
+![Roads End Recreation Site](./images/IMG_6608.JPG)
 
 Aan het einde van de middag komen we aan op de camping van Beverly Beach State Park.
 
-{{< imgproc "images/IMG_3243.jpg" Resize "1024x r0" >}}
+![Beverly Beach State Park](./images/IMG_3243.jpg)
 
 We hebben een prachtig plekje tussen de bomen en aan een beekje. Nadat we alles geinstalleerd hebben, gaan we maar weer naar het strand.
 
-{{< imgproc "images/IMG_6618.JPG" Resize "1024x r0" >}}
+![Beverly Beach State Park](./images/IMG_6618.JPG)
 
 's Avonds is de eerste bbq maaltijd en het eerste kampvuur een feit. Tevens wordt er genoten van de zonsondergang op strand.
 
-{{< imgproc "images/IMG_6631.JPG" Resize "1024x r0" >}}
+![Beverly Beach State Park](./images/IMG_6631.JPG)
 
-{{< imgproc "images/IMG_6633.JPG" Resize "1024x r0" >}}
+![Beverly Beach State Park](./images/IMG_6633.JPG)

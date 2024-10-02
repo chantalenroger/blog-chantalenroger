@@ -15,6 +15,6 @@ Op loopafstand is een zwembad, en een lagoon met zandstrand. De lagoon is maar l
 
 Vandaag doen we rustig aan en blijven de hele middag bij de lagoon. Het is super rustig. In ons huis ligt een opblaasbare eenhoorn, dus die nemen we mee het water in.
 
-{{< imgproc "images/IMG_3909.jpg" Resize "1024x r0" >}}
+![St George](./images/IMG_3909.jpg)
 
-{{< imgproc "images/IMG_3914.jpg" Resize "1024x r0" >}}
+![St George](./images/IMG_3914.jpg)

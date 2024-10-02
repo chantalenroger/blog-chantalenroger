@@ -11,29 +11,29 @@ comments: false
 
 We staan vandaag vroeg op want we willen wandelen naar de Blue Pool. De trailhead is een klein half uurtje terug naar het noorden. We kunnen de camper gelukkig goed parkeren, en vangen de wandeling aan.
 
-{{< imgproc "images/IMG_3349.jpg" Resize "1024x r0" >}}
+![Blue Pool](./images/IMG_3349.jpg)
 
 We volgen de McKenzie river stroom opwaarts. Het is een makkelijk pad, met af en toe een beetje klauteren over rotsen.
 
-{{< imgproc "images/IMG_3352.jpg" Resize "1024x r0" >}}
+![Blue Pool](./images/IMG_3352.jpg)
 
 Na een kilometer of drie komen we aan bij de pool. De naam verraadt het al een beetje natuurlijk, maar de pool is ECHT blauw! We zijn erg onder de indruk!
 
-{{< imgproc "images/IMG_3356.jpg" Resize "1024x r0" >}}
+![Blue Pool](./images/IMG_3356.jpg)
 
-{{< imgproc "images/IMG_6909.JPG" Resize "1024x r0" >}}
+![Blue Pool](./images/IMG_6909.JPG)
 
-{{< imgproc "images/IMG_6899.JPG" Resize "1024x r0" >}}
+![Blue Pool](./images/IMG_6899.JPG)
 
 We besluiten de scenic byway McKenzie Pass te nemen naar onze volgende camping, maar niet voordat we voor vandaag de laatste waterval Koosah bekijken. Ook deze ligt pal naast de doorgaande weg.
 
-{{< imgproc "images/IMG_6932.JPG" Resize "1024x r0" >}}
+![Koosah Waterfall](./images/IMG_6932.JPG)
 
-{{< imgproc "images/IMG_3374.jpg" Resize "1024x r0" >}}
+![Koosah Waterfall](./images/IMG_3374.jpg)
 
 Na een heleboel geslinger komen we boven op de pass aan. Hier is een lava veld met een uitkijktoren.
 
-{{< imgproc "images/IMG_3377.jpg" Resize "1024x r0" >}}
+![McKenzie Pass](./images/IMG_3377.jpg)
 
 Grappig, op de eerste Amerika reis van Sofie (ze was toen 9 maanden) waren we hier ook :-)
 

@@ -12,7 +12,6 @@ comments: false
 
 Nog 8 werkdagen... het was een vermoeiend jaar...
 
-<!-- {{< imgproc "images/doodmoe_1.jpg" Resize "1024x r0" >}} -->
 ![Zabriskie Point](./images/doodmoe_1.jpg)
 
 ## 5 opmerkingen

@@ -16,8 +16,8 @@ De lunch hebben we ook aan boord genuttigd, en na nog wat plonzen zijn we weer t
 
 De middag hebben we doorgebracht op de ligweide naast het Aqua Fun zwembad, aan de oever van het meer. Het zwembad is al twee jaar niet meer in gebruik, maar de kleedruimten, restaurant, en dus ook de ligweide gelukkig nog wel. Ook kun je via wat trappen in het meer zwemmen, waar beide dames dan ook dankbaar gebruik hebben gemaakt.
 
-{{< imgproc "images/IMG_9537.jpg" Fit "1024x768 r0" >}}
+![Schluchsee](./images/IMG_9537.jpg)
 
 's Avonds zijn we weer gaan eten bij Seehof.
 
-{{< imgproc "images/IMG_9564.jpg" Fit "1024x768 r0" >}}
+![Schluchsee](./images/IMG_9564.jpg)

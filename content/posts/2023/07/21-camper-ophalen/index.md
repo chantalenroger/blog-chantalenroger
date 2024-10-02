@@ -17,6 +17,6 @@ We zijn de enigen, dus het papierwerk is vlug geregeld. Van buiten zit de camper
 
 Het is ongeveer anderhalf uur rijden naar McMinnville. Hier ligt onze eerste camping van deze reis: Olde Stone Village RV Park. Het blijkt een keurige plek te zijn. Naast de camping ligt een luchtvaart museum en een water park in luchtvaart thema met de heel toepasselijke naam Wings & Waves. Er staat een joekel van een jumbojet op het dak, en waar normaal gesproken de deuren zitten, komen nu glijbanen naar buiten. Sofie en Chantal gaan een duik nemen, ik mag nog niet vanwege mijn Domme Actie Met De Schaar van afgelopen weekend.
 
-{{< imgproc "images/IMG_3229.jpg" Resize "1024x r0" >}}
+![Wings & Waves](./images/IMG_3229.jpg)
 
-{{< imgproc "images/IMG_3230.jpg" Resize "1024x r0" >}}
+![Wings & Waves](./images/IMG_3230.jpg)

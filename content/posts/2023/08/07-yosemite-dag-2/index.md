@@ -15,26 +15,26 @@ De art class zelf is ook leuk. Met een echte juf lopen alle kinderen door een st
 
 Na de tekenles lopen we nog een stukje stroomopwaarts langs de Merced river. Het is er uitgestorven, dus we kunnen in alle rust van het natuurschoon genieten. Op een boom snacken we wat.
 
-{{< imgproc "images/IMG_3654.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3654.jpg)
 
 Iets verderop lopen we tegen twee spechten aan die vrolijk aan het eten zijn.
 
-{{< imgproc "images/IMG_3659.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3659.jpg)
 
 Hierna wandelen we terug naar de shuttle stop. Het duurt echter zo lang voor het ding komt, dat we besluiten om maar terug te lopen naar de camper.
 
-{{< imgproc "images/IMG_7361.JPG" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_7361.JPG)
 
 We rijden de camper weer de vallei in, en vinden aan de voet van de machtige El Capitan rots zowaar een mooi plekje om de camper te parkeren. We trekken de zwembroek aan, pakken een stoel, wat drinken en snacken, en de band. We gaan heerlijk floaten in de Merced river die hier redelijk rustig stroomt. Tenminste, zolang je aan de kant blijft. Een slimmerik kon namelijk aan de overkant het water uit klimmen, omdat 'ie vanwege de stroming niet meer terug kwam. Uitkijken geblazen dus.
 
-{{< imgproc "images/IMG_3670.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3670.jpg)
 
-{{< imgproc "images/IMG_3675.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3675.jpg)
 
 Ook hier is het prachtig en heel rustig. Iedereen blijft toch een beetje rond de Yosemite Falls en Visitor Center hangen. Geeft niks, hebben wij lekker het rijk voor ons alleen.
 
 We slapen deze nacht op de Hodgdon Meadow Campground. Ook hier hebben we een mooi rustig plekje.
 
-{{< imgproc "images/IMG_3679.jpg" Resize "1024x r0" >}}
+![Yosemite National Park](./images/IMG_3679.jpg)
 
 's Avonds gaat weer lekker de bbq aan, en zitten we heerlijk bij het kampvuur. Gezellig wat babbelen, en natuurlijk marshmallows roosteren. De avond voltrok zich kortom in volmaakte harmonie.

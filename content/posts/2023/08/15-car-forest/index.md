@@ -17,14 +17,14 @@ Een stukje verder naar het zuiden, in Goldfield, is wel degelijk een leuk uitje 
 
 Met de camper kun je er niet komen, dus die parkeren we even en gaan met de auto het korte onverharde pad op. Het levert in ieder geval mooie plaatjes op.
 
-{{< imgproc "images/IMG_3868.jpg" Resize "1024x r0" >}}
+![International Car Forest](./images/IMG_3868.jpg)
 
-{{< imgproc "images/IMG_3871.jpg" Resize "1024x r0" >}}
+![International Car Forest](./images/IMG_3871.jpg)
 
-{{< imgproc "images/IMG_3883.jpg" Resize "1024x r0" >}}
+![International Car Forest](./images/IMG_3883.jpg)
 
 Het nepbos is een welkome afwisseling van de verder poepsaaie weg. Na nog wat uurtjes rechtdoor komen we aan bij Wine Ridge RV Resort in Pahrump. De camping beschikt over een super zwembad, dat we helemaal voor ons zelf hebben.
 
-{{< imgproc "images/IMG_3890.jpg" Resize "1024x r0" >}}
+![Wine Ridge RV Resort](./images/IMG_3890.jpg)
 
 Chantal pakt alle spullen in de koffers zodat die alvast in de auto kunnen. 's Avonds maken we de laatste restjes uit de koelkast op.

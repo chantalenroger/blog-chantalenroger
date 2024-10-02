@@ -11,37 +11,37 @@ comments: false
 
 Vlakbij onze camping ligt Devils Punchbowl State Natural Area. Alleen bij laagwater kun je er via het dan droogliggende strand naar toe lopen. We zijn er al om negen uur, en zijn er helemaal alleen. Vanaf de parkeerplaats kijk je bovenop het gat in de rotsen, door de Duivel zelf gemaakt. Het is nog erg mistig zo vroeg op de ochtend.
 
-{{< imgproc "images/IMG_3272.jpg" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_3272.jpg)
 
-{{< imgproc "images/IMG_3275.jpg" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_3275.jpg)
 
 We eten even een boterham op een bankje in het parkje, en wandelen dan een paar honderd meter naar het strand. De mist is inmiddels opgetrokken.
 
-{{< imgproc "images/IMG_3277.jpg" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_3277.jpg)
 
-{{< imgproc "images/IMG_3282.jpg" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_3282.jpg)
 
-{{< imgproc "images/IMG_3286.jpg" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_3286.jpg)
 
-{{< imgproc "images/IMG_6677.JPG" Resize "1024x r0" >}}
+![Devils Punch Hole](./images/IMG_6677.JPG)
 
 Na al dit moois rijden we ietjes verder terug naar het noorden naar Depoe Bay. We wandelen wat door het stadje.
 
-{{< imgproc "images/IMG_3296.jpg" Resize "1024x r0" >}}
+![Depoe Bay](./images/IMG_3296.jpg)
 
 We moeten ons om half een melden bij de haven, want daar wacht de boot op ons die ons mee gaat nemen op jacht naar walvissen.
 
-{{< imgproc "images/IMG_3297.jpg" Resize "1024x r0" >}}
+![Depoe Bay](./images/IMG_3297.jpg)
 
 We zijn de haven nog niet uit, of we zien de eerste walvissen al. Het zijn grijze walvissen, die ongeveer 15 meter lang kunnen worden en tot 41 ton kunnen wegen. Om de paar minuten zien we de ene na de andere walvis boven water komen om lucht te happen. Het is best imposant om te zien.
 
-{{< imgproc "images/P1044151.JPG" Resize "1024x r0" >}}
+![Depoe Bay](./images/P1044151.JPG)
 
-{{< imgproc "images/P1044174.JPG" Resize "1024x r0" >}}
+![Depoe Bay](./images/P1044174.JPG)
 
-{{< imgproc "images/P1044177.JPG" Resize "1024x r0" >}}
+![Depoe Bay](./images/P1044177.JPG)
 
-{{< imgproc "images/P1044150.JPG" Resize "1024x r0" >}}
+![Depoe Bay](./images/P1044150.JPG)
 
 Het tochtje duurt al met al een uurtje. We hebben ook nog wat langsdrijvende kwallen gezien en een zeehond die met z'n prooi aan het spelen was.
 
@@ -49,4 +49,4 @@ We lunchen wederom op het strand, deze keer op het iets noordelijker gelegen Lin
 
 Rond het einde van de middag komen we aan in Silver Falls State Park. Hier gaan we twee nachten blijven, ook hier hebben we weer een heel mooi plekje tussen de bomen.
 
-{{< imgproc "images/IMG_3303.jpg" Resize "1024x r0" >}}
+![Silver Falls State Park](./images/IMG_3303.jpg)
